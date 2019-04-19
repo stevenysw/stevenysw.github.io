@@ -25,7 +25,11 @@
         {% if site.github.is_project_page %}
         <p class="view"><a href="{{ site.github.repository_url }}">View the Project on GitHub <small>{{ site.github.repository_nwo }}</small></a></p>
         {% endif %}
-
+        
+        {% if site.github.is_user_page %}
+        <p class="view"><a href="https://twitter.com/stevenyee2249">My Twitter Profile </a><br><a href="{{ site.github.owner_url }}">My GitHub Profile </a><br><a href="mailto:jonathan.frazer@desy.de">Contact Me </a></p>
+        {% endif %}
+        
         {% if site.show_downloads %}
         <ul>
           <li><a href="{{ site.github.zip_url }}">Download <strong>ZIP File</strong></a></li>
