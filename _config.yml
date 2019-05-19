@@ -1,11 +1,8 @@
 theme: jekyll-theme-minimal
 title: Steven (Siwei) Ye
 description: 
-   —
-     Ph.D. Student
+   - Ph.D. Student //
 
-   -
-     Statistics at University of California, Los Angeles
-   
-   -
-     stevenysw at ucla dot edu
+   - Statistics at University of California, Los Angeles //
+    
+   - stevenysw at ucla dot edu
