@@ -5,7 +5,6 @@ I am a first-year Ph.D. student in [Statistics at University of California, Los 
 
 ## [Research](./Research.html)
 
-My research interests lie in statistical learning and its application in social science, economics, and finance.
 
 ## [Teaching](./Teaching.html)
 
