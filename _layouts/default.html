@@ -22,7 +22,7 @@
 
         <p>{{ site.description | default: site.github.project_tagline }}</p>
         
-        {% if site.github.is_user_page %}
+        {% if site.github.is_project_page %}
         <ul class="network-icon" aria-hidden="true">
           <li><a href="{{ site.github.owner_url }}"><img src="./style_files/GitHub.png" style="width:28px; height:28px" title="" alt=""> </a></li>
           <li><a href="https://www.linkedin.com/in/steven-siwei-ye-8b0b94102/"><img src="./style_files/LinkedIn.jpg" style="width:28px; height:28px" title="" alt=""> </a></li>
@@ -44,9 +44,6 @@
 
       </section>
       <footer>
-        {% if site.github.is_project_page %}
-        <p>This project is maintained by <a href="{{ site.github.owner_url }}">{{ site.github.owner_name }}</a></p>
-        {% endif %}
         <p><small>Hosted on GitHub Pages &mdash; Theme by <a href="https://github.com/orderedlist">orderedlist</a></small></p>
       </footer>
     </div>
