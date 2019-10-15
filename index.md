@@ -4,7 +4,7 @@ I am a first-year Ph.D. student in [Statistics at University of California, Los 
 
 
 ## [Research](./research.html)
-
+My research interests lie in statistical learning, high-dimensional statistics, network analysis and their application in social science, economics and finance. 
 
 ## [Teaching](./teaching.html)
 
