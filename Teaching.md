@@ -2,6 +2,7 @@
 ## Reader
 ### UC Berkeley
 STAT 134: ** ** (Fall 2016, Spring 2017)
+\\
 STAT 151A: **Linear Modelling: Theory and Applications** ()
 STAT 153: **Introduction to Time Series** (Fall)
 STAT 155: ** ** (Fall 2017)
