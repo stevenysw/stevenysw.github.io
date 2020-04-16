@@ -4,7 +4,7 @@ I am a first-year Ph.D. student in [Statistics at University of California, Los 
 
 
 ## [Research](./research.html)
-My research interests lie in statistical learning theory, change point detection and their application in social science, economics and finance. 
+My research interests lie in non-parametric statistics, high-dimensional statistics, learning theory and their application in social science, economics and finance. 
 
 ## [Teaching](./teaching.html)
 I have been working at both UC Berkeley and UCLA.
