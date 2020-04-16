@@ -9,7 +9,7 @@
 *   MATH 170: **Mathematical Methods for Optimization** (Spring 2019)
 
 ### UCLA
-*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2019, Spring 2020)
+*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2019, Winter 2020, Spring 2020)
 
 
 ## Teaching Assistant
