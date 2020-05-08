@@ -1,4 +1,8 @@
 # Teaching
+## Teaching Assistant
+### UCLA
+*   STAT 102C: **Introduction to Monte Carlo Methods** (Summer 2020)
+
 ## Reader/Grader
 ### UC Berkeley
 *   STAT 134: **Concepts of Probability** (Fall 2016, Spring 2017)
@@ -11,6 +15,3 @@
 ### UCLA
 *   STAT 10: **Introduction to Statistical Reasoning** (Fall 2019, Winter 2020, Spring 2020)
 
-
-## Teaching Assistant
-### UCLA
