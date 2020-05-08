@@ -4,7 +4,7 @@ I am a first-year Ph.D. student in [Statistics at University of California, Los 
 
 
 ## [Research](./research.html)
-My research interests lie in non-parametric statistics, high-dimensional statistics, learning theory and their application in social science, economics and finance. 
+My current research project is on nonparametric regression in high-dimensional settings. I am also interested in statistical network analysis and its application in social science, economics and finance.
 
 ## [Teaching](./teaching.html)
 I have been working at both UC Berkeley and UCLA.
