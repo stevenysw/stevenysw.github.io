@@ -9,7 +9,7 @@ Previously, I graduated from [University of California, Berkeley](http://www.ber
 My current research focus is on quantile regression in nonparametric setups. I am also interested in deep learning and its application in computational biology, social science, and economics.
 
 ### Papers
-**S. Ye** and O.H.M. Padilla. Non-parametric Quantile Regression via the K-NN Fused Lasso. [PDF][https://arxiv.org/abs/2012.01758]
+**S. Ye** and O.H.M. Padilla. Non-parametric Quantile Regression via the K-NN Fused Lasso. [PDF](https://arxiv.org/abs/2012.01758)
 
 ## Teaching
 ### Teaching Assistant
