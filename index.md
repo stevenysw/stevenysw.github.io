@@ -14,8 +14,7 @@ My current research focus is on quantile regression in nonparametric setups. I a
 ## Teaching
 ### Teaching Assistant
 #### UCLA
-*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020)
-*   STAT 100B: **Introduction to Mathematical Statistics** (Winter 2021)
+*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021)
 *   STAT 102C: **Introduction to Monte Carlo Methods** (Summer 2020)
 
 ### Reader/Grader
