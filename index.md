@@ -1,12 +1,12 @@
 ## About Me
 
-I am a second-year Ph.D. student in [Statistics at University of California, Los Angeles](http://statistics.ucla.edu/). My advisor is Professor [Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
+I am a second-year Ph.D. student in [Statistics at University of California, Los Angeles](http://statistics.ucla.edu/). My advisor is [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
 
-Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with Professor [Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with Professor [Philip Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant.
+Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant.
 
 
 ## Research
-My current research focus is on quantile regression in nonparametric setups. I am also interested in deep learning and its application in computational biology, social science, and economics.
+My current research focus is on non-parametric statistics. I am also interested in causal inference, deep learning and their application in computational biology, social science, and economics.
 
 ### Papers
 **S. Ye** and O.H.M. Padilla. Non-parametric Quantile Regression via the K-NN Fused Lasso. [PDF](https://arxiv.org/abs/2012.01758)
