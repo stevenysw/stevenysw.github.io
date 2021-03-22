@@ -16,7 +16,7 @@ Look Who’s Talking: Gender Bias in Academic Job Talks. (Submitted to journal f
 ## Teaching
 ### Teaching Assistant
 #### UCLA
-*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021)
+*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021, Spring 2021)
 *   STAT 102C: **Introduction to Monte Carlo Methods** (Summer 2020)
 
 ### Reader/Grader
