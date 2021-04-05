@@ -1,15 +1,8 @@
 theme: jekyll-theme-minimal
 title: Steven (Siwei) Ye
 description: Ph.D. Student in Statistics at UCLA
-email: stevenysw@g.ucla.edu
-plugins:
-  - jekyll-sitemap
-  - jekyll-seo-tag
-  - jekyll-feed
-  - jekyll-archives
-social:
+author:
   name: Steven Ye
-  links:
-    - https://twitter.com/username
-    - https://plus.google.com/u/0/+username
-    - https://www.facebook.com/username
+  email: stevenysw@g.ucla.edu
+  social:
+    facebook: https://www.facebook.com/steven2249/
