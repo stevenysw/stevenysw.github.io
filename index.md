@@ -32,4 +32,4 @@ Look Who’s Talking: Gender Bias in Academic Job Talks. (Submitted to journal f
 *   STAT 10: **Introduction to Statistical Reasoning** (Fall 2019, Winter 2020, Spring 2020)
 
 ## Personal
-I love [travel](/pages/travel/travel.md) and [food](/pages/food/food.md).
+I love [travel](/pages/travel/travel.md) and [food](food.md).
