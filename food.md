@@ -1,5 +1,5 @@
 ## My Restaurant Guide
-### Shanghai, China
+### Shanghai
 [Da Vittorio](/food/dv.md) (☆☆☆☆☆)
 
 ### Bay Area
