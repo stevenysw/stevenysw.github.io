@@ -1,6 +1,6 @@
 ## My Restaurant Guide
 ### Shanghai, China
-[]
+[Da Vittorio](/food/dv.md) (☆☆☆☆☆)
 
 ### Bay Area
 [Lazy Bear](/food/lazybear.md) (☆☆☆☆☆)
