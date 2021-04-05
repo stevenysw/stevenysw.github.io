@@ -1,7 +1,5 @@
 theme: jekyll-theme-prologue
 title: Steven (Siwei) Ye
 description: Ph.D. Student in Statistics at UCLA
-author:
-  social:
-    github: https://github.com/stevenysw/ 
+github_url: https://github.com/stevenysw/ 
 
