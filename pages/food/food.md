@@ -1,5 +1,11 @@
-# My Michelin Guide
-<p float="left">
-  <img src="/pages/food/photos/naka1.jpeg" width="150" height="150">
-  <img src="/pages/food/photos/naka2.jpeg" width="150" height="150">
-</p>
+# My Restaurant Guide
+## 5 Star (Heaven)
+
+## 4 Star (Worth trying)
+
+## 3 Star (Just so so)
+
+## 2 Star (Not recommend)
+
+## 1 Star (Don't go)
+
