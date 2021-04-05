@@ -1,4 +1,9 @@
 theme: jekyll-theme-minimal
 title: Steven (Siwei) Ye
 description: Ph.D. Student in Statistics at UCLA
-
+social:
+  name: Joe Bloggs
+  links:
+    - https://twitter.com/username
+    - https://plus.google.com/u/0/+username
+    - https://www.facebook.com/username
