@@ -1,6 +1,11 @@
 theme: jekyll-theme-minimal
 title: Steven (Siwei) Ye
 description: Ph.D. Student in Statistics at UCLA
+plugins:
+  - jekyll-sitemap
+  - jekyll-seo-tag
+  - jekyll-feed
+  - jekyll-archives
 social:
   name: Joe Bloggs
   links:
