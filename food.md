@@ -1,7 +1,9 @@
 ## My Restaurant Guide
 ### Shanghai, China
+[]
 
 ### Bay Area
+[Lazy Bear](/food/lazybear.md) (☆☆☆☆☆)
 
 ### Los Angeles
 [n/naka](/food/naka.md) (☆☆☆)
@@ -12,4 +14,5 @@
 
 ### Europe
 
-### Others
+### The Rest of the World
+
