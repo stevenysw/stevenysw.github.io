@@ -1,2 +1,2 @@
 # My Michelin Guide
-![Naka, Los Angeles](/pages/food/photos/naka1.jpeg)
+<img src="/pages/food/photos/naka1.jpeg" width="100" height="100">
