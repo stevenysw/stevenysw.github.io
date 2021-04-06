@@ -1,6 +1,8 @@
 ## My Restaurant Guide
 ### Shanghai
-[Da Vittorio](/food/dv.md) (☆☆☆☆☆)
+[8 1/2 Otto E Mezzo BOMBANA](/food/85.md) (☆☆☆)
+[Da Vittorio Shanghai](/food/dv.md) (☆☆☆☆☆)
+[Maison Lameloise](/food/lame.md) (☆☆☆☆)
 
 ### Bay Area
 [Lazy Bear](/food/lazybear.md) (☆☆☆☆☆)
