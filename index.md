@@ -11,7 +11,7 @@ My current research focus is on non-parametric statistics. I am also interested 
 ### Papers
 **S. Ye** and O.H.M. Padilla. Non-parametric Quantile Regression via the K-NN Fused Lasso. [PDF](https://arxiv.org/pdf/2012.01758.pdf). [Code](https://github.com/stevenysw/qt_knnfl). **To appear in Journal of Machine Learning Research.**
 
-A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. W, P. Stark, G. O'Connell. Look Who’s Talking: Gender Bias in Academic Job Talks. **Submitted to journal for review.**
+A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, P. Stark, G. O'Connell. Look Who’s Talking: Gender Bias in Academic Job Talks. **Submitted to journal for review.**
 
 ## Teaching
 ### Teaching Assistant
