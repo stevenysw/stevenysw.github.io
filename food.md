@@ -13,7 +13,7 @@
 
 ## United States
 ### Bay Area
-c
+[Lazy Bear](/food/bear.md) (☆☆☆☆☆)
 
 ### Los Angeles
 [n/naka](/food/naka.md) (☆☆☆)
