@@ -1,4 +1,5 @@
-## My Restaurant Guide
+# My Restaurant Guide
+## China
 ### Shanghai
 [8 1/2 Otto E Mezzo BOMBANA](/food/85.md) (☆☆☆)
 
@@ -6,17 +7,28 @@
 
 [Maison Lameloise](/food/lame.md) (☆☆☆☆)
 
+### Beijing
+
+### Other Cities
+
+## United States
 ### Bay Area
-[Lazy Bear](/food/lazybear.md) (☆☆☆☆☆)
+c
 
 ### Los Angeles
 [n/naka](/food/naka.md) (☆☆☆)
 
 ### New York
 
-### Japan
+## Japan
+### Tokyo
+[Sant Pau](/food/santpau.md) (☆☆☆☆)
 
-### Europe
+### Osaka
 
-### The Rest of the World
+### Other Cities
+
+## Europe
+
+## The Rest of the World
 
