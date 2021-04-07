@@ -1,6 +1,5 @@
 ## Maison Lameloise
-*   **Location:** No.501 Yincheng Middle Road, Pudong New Area 68/F, Shanghai Tower, Shanghai, China
-*   **Food type:** French
+*   **Location:** No.501 Yincheng Middle Road, Pudong New Area 68/F, Shanghai Tower, Shanghai
 *   **Recommendation:** ☆☆☆☆
 
 <p float="left">
