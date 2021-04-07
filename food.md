@@ -14,6 +14,7 @@
 ## United States
 ### Bay Area
 [Ju-Ni](/food/juni.md) (☆☆☆☆)
+
 [Lazy Bear](/food/bear.md) (☆☆☆☆☆)
 
 ### Los Angeles
