@@ -24,9 +24,15 @@
 
 ## Japan
 ### Tokyo
+[Florilège](/food/florilege.md) (☆☆☆☆☆)
+
 [Sant Pau](/food/santpau.md) (☆☆☆☆)
 
 ### Osaka
+[Fujiya 1935](/food/fujiya.md) (☆☆☆☆)
+
+### Hokkaido
+[Moliere](/food/moliere.md) (☆☆☆☆☆)
 
 ### Other Cities
 
