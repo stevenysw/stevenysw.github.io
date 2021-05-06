@@ -30,4 +30,10 @@
 <p float="left">
   <img src="/food/photo/mikawa13.jpeg" width="150" height="150">
   <img src="/food/photo/mikawa14.jpeg" width="150" height="150">
+  <img src="/food/photo/mikawa15.jpeg" width="150" height="150">
+</p>
+
+<p float="left">
+  <img src="/food/photo/mikawa16.jpeg" width="150" height="150">
+  <img src="/food/photo/mikawa17.jpeg" width="150" height="150">
 </p>
