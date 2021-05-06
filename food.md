@@ -30,7 +30,7 @@
 ### Tokyo
 [Florilège](/food/florilege.md) (☆☆☆☆☆)
 
-[Mikawa Zezankyo](/food/mikawa.md) (☆☆☆☆)
+[Mikawa Zezankyo](/food/mikawa.md) (☆☆☆☆☆)
 
 [Sant Pau](/food/santpau.md) (☆☆☆☆)
 
