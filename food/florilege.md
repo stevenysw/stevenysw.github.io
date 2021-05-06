@@ -18,4 +18,9 @@
 <p float="left">
   <img src="/food/photo/fl7.jpeg" width="150" height="150">
   <img src="/food/photo/fl8.jpeg" width="150" height="150">
+  <img src="/food/photo/fl9.jpeg" width="150" height="150">
+</p>
+
+<p float="left">
+  <img src="/food/photo/fl10.jpeg" width="150" height="150">
 </p>
