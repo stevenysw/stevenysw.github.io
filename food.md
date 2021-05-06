@@ -30,7 +30,11 @@
 ### Tokyo
 [Florilège](/food/florilege.md) (☆☆☆☆☆)
 
+[Mikawa Zezankyo](/food/mikawa.md) (☆☆☆☆)
+
 [Sant Pau](/food/santpau.md) (☆☆☆☆)
+
+[Tempura Kondo](/food/kondo.md) (☆☆☆☆)
 
 ### Osaka
 [Fujiya 1935](/food/fujiya.md) (☆☆☆☆)
