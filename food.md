@@ -5,6 +5,8 @@
 
 [Da Vittorio Shanghai](/food/dv.md) (☆☆☆☆☆)
 
+[Fu He Hui](/food/fuhehui.md) (☆☆☆☆☆)
+
 [Maison Lameloise](/food/lame.md) (☆☆☆☆)
 
 ### Beijing
