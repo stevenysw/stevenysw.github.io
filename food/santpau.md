@@ -1,4 +1,4 @@
-## Sant Pau
+## Sant Pau (サンパウ）
 *   **Location:** 2 Chome-16-15 Hirakawachō, Chiyoda City, Tokyo
 *   **Food type:** Spanish
 *   **Recommendation:** ☆☆☆☆
