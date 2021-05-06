@@ -19,7 +19,7 @@
 
 [Lazy Bear](/food/bear.md) (☆☆☆☆☆)
 
-[The French Laundry](/food/tfl.md) (☆☆☆)
+[The French Laundry](/food/tfl.md) (☆☆)
 
 ### Los Angeles
 [n/naka](/food/naka.md) (☆☆☆)
