@@ -1,4 +1,4 @@
-## Moliere
+## Moliere (モリエール)
 *   **Location:** 2 Chome−1−1, Miyagaoka, Chuo Ward, Sapporo, Hokkaido
 *   **Food type:** French
 *   **Recommendation:** ☆☆☆☆☆
