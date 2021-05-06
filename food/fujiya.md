@@ -18,4 +18,17 @@
 <p float="left">
   <img src="/food/photo/fujiya7.jpeg" width="150" height="150">
   <img src="/food/photo/fujiya8.jpeg" width="150" height="150">
+  <img src="/food/photo/fujiya9.jpeg" width="150" height="150">
+</p>
+
+<p float="left">
+  <img src="/food/photo/fujiya10.jpeg" width="150" height="150">
+  <img src="/food/photo/fujiya11.jpeg" width="150" height="150">
+  <img src="/food/photo/fujiya12.jpeg" width="150" height="150">
+</p>
+
+<p float="left">
+  <img src="/food/photo/fujiya13.jpeg" width="150" height="150">
+  <img src="/food/photo/fujiya14.jpeg" width="150" height="150">
+  <img src="/food/photo/fujiya15.jpeg" width="150" height="150">
 </p>
