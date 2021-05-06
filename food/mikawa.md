@@ -1,7 +1,7 @@
 ## Mikawa Zezankyo (みかわ 是山居)
 *   **Location:** 1 Chome-3-1 Fukuzumi, Koto City, Tokyo
 *   **Food type:** Tempura
-*   **Recommendation:** ☆☆☆☆
+*   **Recommendation:** ☆☆☆☆☆
 
 <p float="left">
   <img src="/food/photo/mikawa1.jpeg" width="150" height="150">
