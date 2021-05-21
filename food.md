@@ -15,6 +15,8 @@
 
 ## United States
 ### Bay Area
+[Benu](/food/benu.md) (☆☆☆☆)
+
 [Birdsong](/food/bird.md) (☆☆☆☆)
 
 [Ju-Ni](/food/juni.md) (☆☆☆☆)
