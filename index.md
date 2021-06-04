@@ -9,7 +9,7 @@ Previously, I graduated from [University of California, Berkeley](http://www.ber
 My current research focus is on non-parametric statistics. I am also interested in causal inference, deep learning and their application in computational biology, social science, and economics.
 
 ### Papers
-**S. Ye** and O.H.M. Padilla. *Non-parametric Quantile Regression via the K-NN Fused Lasso.* [PDF](https://www.jmlr.org/papers/volume22/20-1462/20-1462.pdf). [Code](https://github.com/stevenysw/qt_knnfl). **Journal of Machine Learning Research, Vol. 22, No. 111, 1-38, 2021.**
+**S. Ye** and O.H.M. Padilla. *Non-parametric Quantile Regression via the K-NN Fused Lasso.* **Journal of Machine Learning Research, Vol. 22, No. 111, 1-38, 2021.** [PDF](https://www.jmlr.org/papers/volume22/20-1462/20-1462.pdf). [Code](https://github.com/stevenysw/qt_knnfl). 
 
 A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, P. Stark, G. O'Connell. *Look Who’s Talking: Gender Bias in Academic Job Talks.* **Submitted to journal for review.**
 
