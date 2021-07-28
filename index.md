@@ -13,7 +13,7 @@ My current research focus is on non-parametric statistics. I am also interested 
 
 A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, P. Stark, G. O'Connell. *Look Who’s Talking: Gender Bias in Academic Job Talks.* **Submitted to journal for review.**
 
-**S. Ye** and O.H.M. Padilla. *Non-parametric Estimation of Heterogeneous Treatment Effects Conditioning On Propensity and Prognostic Scores.* **In preparation (2021).**
+**S. Ye** and O.H.M. Padilla. *Non-parametric Estimation of Heterogeneous Treatment Effects Conditioning On Propensity and Prognostic Scores.* **In preparation (2021+).**
 
 ## Teaching
 ### Teaching Assistant
