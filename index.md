@@ -13,12 +13,12 @@ My current research focus is on non-parametric statistics. I am also interested 
 
 A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, P. Stark, G. O'Connell. *Look Who’s Talking: Gender Bias in Academic Job Talks.* **Submitted to journal for review (2020).**
 
-**S. Ye*, O.H.M. Padilla and Y. Chen. *Non-parametric interpretable score based estimation of heterogeneous treatment effects.* **In preparation (2021+).**
+**S. Ye**, O.H.M. Padilla and Y. Chen. *Non-parametric interpretable score based estimation of heterogeneous treatment effects.* **In preparation (2021+).**
 
 ## Teaching
 ### Teaching Assistant
 #### UCLA
-*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021, Spring 2021)
+*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021, Spring 2021, Fall 2021)
 *   STAT 102C: **Introduction to Monte Carlo Methods** (Summer 2020)
 
 ### Reader/Grader
