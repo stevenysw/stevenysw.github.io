@@ -13,7 +13,7 @@ My current research focus is on non-parametric statistics and causal inference. 
 
 A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, P. Stark, G. O'Connell. *Look Who’s Talking: Gender Bias in Academic Job Talks.* (2020) **Under Review.**
 
-**S. Ye**, Y. Chen, and O.H.M. Padilla. *Non-parametric interpretable score based estimation of heterogeneous treatment effects.* [PDF](https://arxiv.org/pdf/2110.02401.pdf). [Code](https://github.com/stevenysw/causal_pp). **Under Review.**
+**S. Ye**, Y. Chen, and O.H.M. Padilla. *An interpretable score based estimation of heterogeneous treatment effects.* [PDF](https://arxiv.org/pdf/2110.02401.pdf). [Code](https://github.com/stevenysw/causal_pp). **Under Review.**
 
 ## Teaching
 ### Teaching Assistant
