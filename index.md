@@ -4,6 +4,7 @@ I am a Ph.D. candidate in [Statistics at University of California, Los Angeles](
 
 Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant.
 
+I will be joining Nokia Bell Labs as a Machine Learning and AI intern in Summer 2022.
 
 ## Research
 My current research focus is on non-parametric statistics and causal inference. I am also interested in machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
@@ -18,7 +19,8 @@ A. Glazer, H. Luo, S. Devgon, C. Wang, **S. Ye**, X. Yao, F. McQuarrie, Z. Li, A
 ## Teaching
 ### Teaching Assistant
 #### UCLA
-*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021, Spring 2021, Fall 2021, Winter 2021)
+*   STAT 10: **Introduction to Statistical Reasoning** (Fall 2020, Winter 2021, Spring 2021, Fall 2021, Winter 2022)
+*   STAT 13: **Introduction to Statistical Methods for Life and Health Sciences** (Spring 2022)
 *   STAT 102C: **Introduction to Monte Carlo Methods** (Summer 2020)
 
 ### Reader/Grader
