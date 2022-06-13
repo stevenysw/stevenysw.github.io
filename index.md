@@ -4,7 +4,7 @@ I am a Ph.D. candidate in [Statistics at University of California, Los Angeles](
 
 Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant.
 
-I will be joining Nokia Bell Labs as a Machine Learning and AI intern in Summer 2022.
+I am now working at Nokia Bell Labs as a Machine Learning and AI intern during Summer 2022.
 
 ## Research
 My current research focus is on non-parametric statistics and causal inference. I am also interested in machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
