@@ -4,10 +4,10 @@ I am a Ph.D. candidate in [Statistics at University of California, Los Angeles](
 
 Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant.
 
-I am now working at Nokia Bell Labs as a Machine Learning and AI intern during Summer 2022.
+I am now working in Data Science & Statistical Research Team at Nokia Bell Labs as a Machine Learning and AI intern throughout 2022.
 
 ## Research
-My current research focus is on non-parametric statistics and causal inference. I am also interested in machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
+My current research focus is on non-parametric statistics and causal inference. I am also interested in interpretable machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
 
 ### Papers
 **S. Ye** and O.H.M. Padilla. *Non-parametric Quantile Regression via the K-NN Fused Lasso.* **Journal of Machine Learning Research, Vol. 22, No. 111, 1-38, 2021.** [PDF](https://www.jmlr.org/papers/volume22/20-1462/20-1462.pdf). [Code](https://github.com/stevenysw/qt_knnfl). 
