@@ -4,7 +4,7 @@ I am a Ph.D. candidate in [Statistics at University of California, Los Angeles](
 
 Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. I worked in Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) as a Machine Learning and AI intern from June to December in 2022.
 
-I will join Netflix as a Machine Learning Research Intern in the incoming summer.
+I will join Netflix as a Machine Learning Research Intern in Summer 2023.
 
 ## Research
 My current research focus is on non-parametric statistics and causal inference. I am also interested in interpretable machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
