@@ -14,7 +14,7 @@ My current research focus is on non-parametric statistics and causal inference. 
 
 **S. Ye**, Y. Chen, and O.H.M. Padilla. *2D score based estimation of heterogeneous treatment effects.* [PDF](https://arxiv.org/pdf/2110.02401.pdf). [Code](https://github.com/stevenysw/causal_pp). **Under Review.**
 
-A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, G.D. O'Connell, P.B. Stark. *Look Who’s Talking: Gender Differences in Academic Job Talks.* [PDF]([https://arxiv.org/pdf/2110.02401.pdf](https://www.scienceopen.com/hosted-document?doi=10.14293/PR2199.000025.v2). **Under Review.**
+A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, G.D. O'Connell, P.B. Stark. *Look Who’s Talking: Gender Differences in Academic Job Talks.* [PDF](https://www.scienceopen.com/hosted-document?doi=10.14293/PR2199.000025.v2). **Under Review.**
 
 ## Teaching
 ### Teaching Assistant
