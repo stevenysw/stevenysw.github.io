@@ -34,7 +34,9 @@ A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li,
 
 #### UCLA
 *   STAT 10: **Introduction to Statistical Reasoning** (Fall 2019, Winter 2020, Spring 2020)
+*   STAT 13: **Introduction to Statistical Methods for Life and Health Sciences** (Fall 2023)
 *   STAT 15: **Introduction to Data Science** (Fall 2022)
+*   STAT 101B: **Introduction to Design and Analysis of Experiment** (Spring 2023)
 
 ## Personal
 I love [travel](travel.md) and [food](food.md)! Click to view my travel photography gallery and restaurant guide!
