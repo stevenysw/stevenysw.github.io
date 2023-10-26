@@ -10,7 +10,7 @@ My current research focus is on non-parametric statistics and causal inference. 
 ### Papers
 **S. Ye** and O.H.M. Padilla. *Non-parametric Quantile Regression via the K-NN Fused Lasso.* **Journal of Machine Learning Research, Vol. 22, No. 111, 1-38, 2021.** [PDF](https://www.jmlr.org/papers/volume22/20-1462/20-1462.pdf). [Code](https://github.com/stevenysw/qt_knnfl). 
 
-**S. Ye**, Y. Chen, and O.H.M. Padilla. *2D Score Based Estimation of Heterogeneous Treatment Effects.* [PDF](https://www.degruyter.com/document/doi/10.1515/jci-2022-0016/). [Code](https://github.com/stevenysw/causal_pp). **Journal of Causal Inference, Vol. 11, No. 1, 20220016, 2023.**
+**S. Ye**, Y. Chen, and O.H.M. Padilla. *2D Score Based Estimation of Heterogeneous Treatment Effects.* [PDF](https://www.degruyter.com/document/doi/10.1515/jci-2022-0016/). [Code](https://github.com/stevenysw/causal_pp). **Journal of Causal Inference, Vol. 11, No. 1, 2023.**
 
 A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, G.D. O'Connell, P.B. Stark. *Look Who’s Talking: Gender Differences in Academic Job Talks.* [PDF](https://www.scienceopen.com/hosted-document?doi=10.14293/PR2199.000025.v2). **ScienceOpen Preprints, 2023.**
 
