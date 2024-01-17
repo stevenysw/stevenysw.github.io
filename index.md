@@ -14,7 +14,7 @@ My current research focus is on non-parametric statistics and causal inference. 
 
 A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, G.D. O'Connell, P.B. Stark. *Look Who’s Talking: Gender Differences in Academic Job Talks.* [PDF](https://www.scienceopen.com/hosted-document?doi=10.14293/S2199-1006.1.SOR.2023.0003.v1). **ScienceOpen Research, 2023.**
 
-**S. Ye**, Y. Chen, and O.H.M. Padilla. *Causal Effect Estimation via Graph Based Fused Lasso: an Application to Transportation Network Crime Data.* **In Preparation, 2024.**
+**S. Ye**, Y. Chen, and O.H.M. Padilla. *Causal Effect Estimation via Graph Based Fused Lasso.* **In Preparation, 2024.**
 
 ## Teaching
 ### Teaching Assistant
