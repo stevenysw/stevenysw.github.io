@@ -4,7 +4,7 @@ I am a Ph.D. Candidate in [Statistics at University of California, Los Angeles](
 
 I graduated with Highest Distinction honors from [University of California, Berkeley](http://www.berkeley.edu), where I pursued a dual degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
 
-I worked with the Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) as a Machine Learning and AI intern from June to December 2022. Following that, in Summer 2023, I worked as a Machine Learning Scientist Intern at [Netflix](https://www.netflix.com/).
+I worked with the Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) as a Machine Learning and AI intern from June to December 2022. Following that, in Summer 2023, I worked with Payments Data Science and Engineering Team as a Machine Learning Scientist Intern at [Netflix](https://www.netflix.com/).
 
 I will be joining [Google](https://about.google/) as a Research Data Scientist Intern in the upcoming Summer 2024.
 
