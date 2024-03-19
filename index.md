@@ -2,7 +2,11 @@
 
 I am a Ph.D. Candidate in [Statistics at University of California, Los Angeles](http://statistics.ucla.edu/). My advisor is [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
 
-Previously, I graduated from [University of California, Berkeley](http://www.berkeley.edu) with Highest Distinction honors in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). During my undergraduate study, I worked with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. I worked in Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) as a Machine Learning and AI intern from June to December in 2022. In Summer 2023, I worked as a Machine Learning Scientist Intern at [Netflix](https://www.netflix.com/).
+I graduated with Highest Distinction honors from [University of California, Berkeley](http://www.berkeley.edu), where I pursued a dual degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
+
+I worked with the Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) as a Machine Learning and AI intern from June to December 2022. Following that, in Summer 2023, I worked as a Machine Learning Scientist Intern at [Netflix](https://www.netflix.com/).
+
+I will be joining [Google](https://about.google/) as a Research Data Scientist Intern in the upcoming Summer 2024.
 
 ## Research
 My current research focus is on non-parametric statistics and causal inference. I am also interested in interpretable machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
@@ -14,7 +18,7 @@ My current research focus is on non-parametric statistics and causal inference. 
 
 A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, G.D. O'Connell, P.B. Stark. *Look Who’s Talking: Gender Differences in Academic Job Talks.* [PDF](https://www.scienceopen.com/hosted-document?doi=10.14293/S2199-1006.1.SOR.2023.0003.v1). **ScienceOpen Research, 2023.**
 
-**S. Ye**, Y. Chen, and O.H.M. Padilla. *Causal Effect Estimation via Graph Based Fused Lasso.* **In Preparation, 2024.**
+**S. Ye**, Y. Chen, and O.H.M. Padilla. *Causal Effect Estimation via Graph Based Fused Lasso.* **In Preparation, 2024+.**
 
 ## Teaching
 ### Teaching Assistant
