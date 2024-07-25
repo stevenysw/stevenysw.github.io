@@ -6,7 +6,7 @@ I graduated with Highest Distinction honors from [University of California, Berk
 
 I worked with the Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) as a Machine Learning and AI intern from June to December 2022. In Summer 2023, I worked with Payments Data Science and Engineering Team at [Netflix](https://www.netflix.com/) as a Machine Learning Scientist Intern.
 
-I am currently a Data Scientist Research Intern at [Google](https://about.google/) Ads Team.
+I am currently a Data Scientist Research Intern at [Google Ads]([(https://ads.google.com/intl/en_us/start/overview-ha/?subid=us-en-ha-awa-bk-c-000!o3~CjwKCAjwzIK1BhAuEiwAHQmU3kvJoR7wzyx5MGfdKYggKw5nkDIhxBA5MTOk-LgFw9Ugv77UAT17BhoCphgQAvD_BwE~137408560317~kwd-94527731~17414652933~663302636775&gad_source=1&gclid=CjwKCAjwzIK1BhAuEiwAHQmU3kvJoR7wzyx5MGfdKYggKw5nkDIhxBA5MTOk-LgFw9Ugv77UAT17BhoCphgQAvD_BwE&gclsrc=aw.ds)].
 
 ## Research
 My current research focus is on non-parametric statistics and causal inference. I am also interested in interpretable machine learning, optimization, deep learning and their application in computational biology, social science, and economics.
