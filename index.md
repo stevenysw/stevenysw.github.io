@@ -18,7 +18,7 @@ A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li,
 
 **S. Ye**, Y. Chen, and O.H.M. Padilla. *Causal Effect Estimation via Fused Lasso over Graph.* **Under Review, 2024+.**
 
-**S. Ye** and O.H.M. Padilla. *Data Adaptive Estimation of Heterogeneous Quantile Treatment Effect.* **Working Paper, 2024+.**
+**S. Ye** and O.H.M. Padilla. *Data Adaptive Estimation of Heterogeneous Quantile Treatment Effect.* **Working Paper, 2025+.**
 
 ## Teaching
 ### Teaching Assistant
