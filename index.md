@@ -1,6 +1,6 @@
 ## About Me
 
-I am a Ph.D. Candidate in [Statistics at University of California, Los Angeles](http://statistics.ucla.edu/). My advisor is [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
+I am a Ph.D. Candidate in [Statistics at University of California, Los Angeles](http://statistics.ucla.edu/). My advisor is [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/). I will be graduating in January, 2025.
 
 I graduated with Highest Distinction honors from [University of California, Berkeley](http://www.berkeley.edu), where I pursued a dual degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
 
