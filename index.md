@@ -4,7 +4,7 @@ I obtained my Ph.D. in [Statistics from the University of California, Los Angele
 
 Before that, I graduated with Highest Distinction from the [University of California, Berkeley](http://www.berkeley.edu), with a dual degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
 
-My industry experience includes internships across leading organizations: with the Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) (June–December 2022), the Payments Data Science and Engineering Team at [Netflix](https://www.netflix.com/) (June–September 2023), and the AIM-DS Team at [Google](https://ads.google.com/) (June–September 2024).
+My industry experience includes internships across leading organizations: Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) (June–December 2022), Payments Data Science and Engineering Team at [Netflix](https://www.netflix.com/) (June–September 2023), and AIM-DS Team at [Google](https://ads.google.com/) (June–September 2024).
 
 I am excited to rejoin [Google](https://ads.google.com/) as a Data Scientist, Research in April 2025.
 
