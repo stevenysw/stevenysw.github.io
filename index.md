@@ -12,7 +12,7 @@ My industry experience includes internships across leading organizations: Data S
 My doctoral research focused on non-parametric statistics and causal inference, with applications in computational biology, social science, and economics.
 
 ### Publications and Papers
-**S. Ye** and O.H.M. Padilla. *Non-parametric Quantile Regression via the K-NN Fused Lasso.* **Journal of Machine Learning Research, Vol. 22, No. 111, 1-38, 2021.** [PDF](https://www.jmlr.org/papers/volume22/20-1462/20-1462.pdf). [Code](https://github.com/stevenysw/qt_knnfl). 
+**S. Ye** and O.H.M. Padilla. *Non-parametric Quantile Regression via the K-NN Fused Lasso.* [PDF](https://www.jmlr.org/papers/volume22/20-1462/20-1462.pdf). [Code](https://github.com/stevenysw/qt_knnfl). **Journal of Machine Learning Research, Vol. 22, No. 111, 1-38, 2021.** 
 
 **S. Ye**, Y. Chen, and O.H.M. Padilla. *2D Score Based Estimation of Heterogeneous Treatment Effects.* [PDF](https://www.degruyter.com/document/doi/10.1515/jci-2022-0016/). [Code](https://github.com/stevenysw/causal_pp). **Journal of Causal Inference, Vol. 11, No. 1, 1-26, 2023.**
 
