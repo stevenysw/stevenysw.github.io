@@ -8,7 +8,7 @@
 # Singapore
 ☆☆☆ [Les Amis](https://www.instagram.com/p/C0dlk_LOV5v/?hl=en)
 
-☆☆☆ [Odette]()
+☆☆☆ [Odette](https://www.instagram.com/p/C0gH4ShO30z/?hl=en)
 
 # South Korea
 
