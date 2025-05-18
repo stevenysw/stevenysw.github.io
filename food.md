@@ -1,9 +1,9 @@
 # My Restaurant Guide
 ## [Greater China](/food/china.md)
 
-## United States(/food/us.md)
+## [United States](/food/us.md)
 
-## Japan
+## [Japan](/food/japan.md)
 ### Tokyo
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
