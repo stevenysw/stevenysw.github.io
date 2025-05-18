@@ -128,11 +128,14 @@
 ### Hokkaido
 ☆☆☆ [Moliere]
 
-### Other Cities
+### Other Regions
+☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
 
 ## Europe
 ### France
 ☆☆☆ [Assiette Champenoise](https://www.instagram.com/p/DHLxmhkR1Yx/?hl=en)
+
+☆☆☆ [Le Gabriel](https://www.instagram.com/p/DHLwRuqxOyt/?hl=en)
 
 ☆☆☆ [Plenitude](https://www.instagram.com/p/DF324XGSw4S/?hl=en)
 
