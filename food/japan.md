@@ -14,6 +14,8 @@
 # Osaka
 ☆☆ Fujiya 1935
 
+☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
+
 # Kyoto
 
 # Nara
