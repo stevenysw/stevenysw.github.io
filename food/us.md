@@ -27,6 +27,8 @@
 
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
+☆ [Torrisi]https://www.instagram.com/p/C_KSIoNRgXV/?hl=en)
+
 # Las Vegas
 ☆☆ [Restaurant Guy Savoy](https://www.instagram.com/p/DIWeINOJYfc/?hl=en)
 
