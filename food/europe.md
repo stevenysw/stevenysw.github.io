@@ -27,6 +27,9 @@
 # Iceland
 ☆ [ÓX](https://www.instagram.com/p/DFTq7raqVYq/?hl=en)
 
+# Italy
+☆☆ [Ristorante Glam](https://www.instagram.com/p/C6uaxOdKjhI/?hl=en)
+
 # Spain
 ☆☆☆ [Quique Dacosta](https://www.instagram.com/p/C61E2I0L6TA/?hl=en)
 
