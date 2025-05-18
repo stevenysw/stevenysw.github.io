@@ -17,6 +17,8 @@
 
 ☆☆☆ Mosu
 
+☆☆ [Jungsik](https://www.instagram.com/p/C0v1IPBu7DI/?hl=en)
+
 # Thailand
 ☆☆ [Sühring](https://www.instagram.com/p/C0la60EOtBr/?hl=en)
 
@@ -26,6 +28,8 @@
 ☆ [Nicöle](https://www.instagram.com/p/C0o04bBrAXv/?hl=en)
 
 # Peru
+[Astrid y Gastón](https://www.instagram.com/p/C0vzpoWu1nh/?hl=en)
+
 [Central](https://www.instagram.com/p/C0gQIfQOEux/?hl=en)
 
 [Maido](https://www.instagram.com/p/C0h21OUPkQu/?hl=en)
