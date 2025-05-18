@@ -33,6 +33,8 @@
 ☆ [UKA](https://www.instagram.com/p/DFEBs0KyrOh/?hl=en)
 
 # New York
+☆☆ [Blanca](https://www.instagram.com/p/C76aBaoRjYa/?hl=en)
+
 ☆☆ [Cesar](https://www.instagram.com/p/DHLMjZURaIY/?hl=en)
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
