@@ -25,7 +25,11 @@
 
 ☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
 
+☆ [Sushi Shin](https://www.instagram.com/p/C0dlwd6O8sr/?hl=en)
+
 ☆ [The Kitchen](https://www.instagram.com/p/C-FDiz4RdhH/?hl=en)
+
+☆ [Wakuriya](https://www.instagram.com/p/C0gXnm2OQod/?hl=en)
 
 # Southern California
 ☆☆ [n/naka]()
@@ -42,6 +46,8 @@
 ☆☆ [Cesar](https://www.instagram.com/p/DHLMjZURaIY/?hl=en)
 
 ☆☆ [Odo](https://www.instagram.com/p/C0dgzOBOGB4/?hl=en)
+
+☆☆ [Uchu by Ichimura](https://www.instagram.com/p/C0djWG4uxMh/?hl=en))
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
 
