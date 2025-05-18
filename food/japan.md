@@ -23,11 +23,20 @@
 
 ☆☆ [ZURRIOLA](https://www.instagram.com/p/C0deAIBurTS/?hl=en)
 
+☆ [Azure 45](https://www.instagram.com/p/C0kF3QrvUZa/?hl=en)
+
 ☆ [BIRD LAND](https://www.instagram.com/p/C0da0EjulIX/?hl=en)
+
+☆ [Kyobashi Tempura Fukamachi](https://www.instagram.com/p/C0iLFncsZGo/?hl=en)
 
 ☆ Mikawa Zezankyo
 
+☆ [Sushi Arai](https://www.instagram.com/p/C0hjfsoRu-s/?hl=en)
+
 ☆ [Sushi Ryujiro](https://www.instagram.com/p/C0gL93HORsC/?hl=en)
+
+# Kanagawa
+☆☆☆ [Kouan](https://www.instagram.com/p/C0h3KbsPBqG/?hl=en)
 
 # Osaka
 ☆☆ [Fujiya 1935](https://www.instagram.com/p/C0gI6CuuiQ5/?hl=en)
@@ -35,12 +44,15 @@
 ☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
 
 # Kyoto
+☆☆ [Ogata](https://www.instagram.com/p/C0kEMD-P3-Y/?hl=en)
 
 # Nara
 ☆☆ [akordu](https://www.instagram.com/p/DBdqxgTvZhk/?hl=en)
 
 # Fukuoka
 ☆☆☆ [Gyoten](https://www.instagram.com/p/DCmGPvdvLbI/?hl=en)
+
+☆☆ [Chakaiseki Nakahan](https://www.instagram.com/p/C0kcvh3vn9s/?hl=en）
 
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
