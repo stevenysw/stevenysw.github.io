@@ -71,7 +71,7 @@
 # New York
 ☆☆☆ [Eleven Madison Park](https://www.instagram.com/p/C0v5vv3LOzN/?hl=en)
 
-☆☆ [Atomix]https://www.instagram.com/p/C0qyCVkOHQZ/?hl=en)
+☆☆ [Atomix](https://www.instagram.com/p/C0qyCVkOHQZ/?hl=en)
 
 ☆☆ [Blanca](https://www.instagram.com/p/C76aBaoRjYa/?hl=en)
 
@@ -83,7 +83,7 @@
 
 ☆☆ [The Modern](https://www.instagram.com/p/C0qzy5hOWOf/?hl=en)
 
-☆☆ [Uchu by Ichimura](https://www.instagram.com/p/C0djWG4uxMh/?hl=en))
+☆☆ [Uchu by Ichimura](https://www.instagram.com/p/C0djWG4uxMh/?hl=en)
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
 
