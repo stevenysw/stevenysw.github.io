@@ -16,6 +16,9 @@
 
 # Kyoto
 
+# Nara
+☆☆ [akordu](https://www.instagram.com/p/DBdqxgTvZhk/?hl=en)
+
 # Fukuoka
 ☆☆☆ [Gyoten](https://www.instagram.com/p/DCmGPvdvLbI/?hl=en)
 
