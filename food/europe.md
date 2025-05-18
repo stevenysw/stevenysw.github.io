@@ -26,4 +26,4 @@
 ☆☆☆ [Frantzen](https://www.instagram.com/p/DF31JgHyiCJ/?hl=en)
 
 # Iceland
-☆ [Ox](https://www.instagram.com/p/DFTq7raqVYq/?hl=en)
+☆ [ÓX](https://www.instagram.com/p/DFTq7raqVYq/?hl=en)
