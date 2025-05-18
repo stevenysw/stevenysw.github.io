@@ -11,11 +11,11 @@
 
 ☆☆ 乔尔·卢布松美食坊 
 
-☆☆ [8 1/2 Otto E Mezzo BOMBANA](/food/85.md) 
+☆☆ [8 1/2 Otto E Mezzo BOMBANA] 
 
 ☆☆ [Taian Table]
 
-☆☆ [Da Vittorio Shanghai](/food/dv.md)
+☆☆ [Da Vittorio Shanghai]
 
 ☆☆ 102 House 
 
@@ -83,20 +83,20 @@
 
 ## United States
 ### Bay Area
-☆☆☆ [Benu](/food/benu.md) 
+☆☆☆ [Benu]
 
-☆☆☆ [The French Laundry](/food/tfl.md)
+☆☆☆ [The French Laundry]
 
 ☆☆ [Aubergine](https://www.instagram.com/p/DJhj7MCy-wm/?hl=en)
 
-☆☆ [Birdsong](/food/bird.md) 
+☆☆ [Birdsong]
 
-☆☆ [Lazy Bear](/food/bear.md)
+☆☆ [Lazy Bear]
 
-☆ [Ju-Ni](/food/juni.md) 
+☆ [Ju-Ni]
 
 ### Los Angeles
-☆☆ [n/naka](/food/naka.md)
+☆☆ [n/naka]
 
 ### New York
 
@@ -112,21 +112,21 @@
 ### Tokyo
 ☆☆ [Den](https://www.instagram.com/p/DG_isXjyVta/?hl=en)
 
-☆☆ [Florilège](/food/florilege.md)
+☆☆ [Florilège]
 
-☆☆ [Sant Pau](/food/santpau.md) 
+☆☆ [Sant Pau]
 
-☆☆ [Tempura Kondo](/food/kondo.md) 
+☆☆ [Tempura Kondo]
 
-☆ [Mikawa Zezankyo](/food/mikawa.md)
+☆ [Mikawa Zezankyo]
 
 ### Kansai
-☆☆ [Fujiya 1935](/food/fujiya.md)
+☆☆ [Fujiya 1935]
 
 ### Kyushu
 
 ### Hokkaido
-☆☆☆ [Moliere](/food/moliere.md)
+☆☆☆ [Moliere]
 
 ### Other Cities
 
