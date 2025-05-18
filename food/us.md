@@ -15,6 +15,8 @@
 
 ☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
 
+☆ [Gary Danko](https://www.instagram.com/p/C0de8xsOpxF/?hl=en)
+
 ☆ [Hilda and Jesse](https://www.instagram.com/p/C-4cHO4RuVu/?hl=en)
 
 ☆ Ju-Ni
@@ -26,7 +28,9 @@
 ☆ [The Kitchen](https://www.instagram.com/p/C-FDiz4RdhH/?hl=en)
 
 # Southern California
-☆☆ [n/naka]
+☆☆ [n/naka]()
+
+☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
 
 ☆ [Meteora](https://www.instagram.com/p/DE0ywebye56/?hl=en)
 
@@ -37,7 +41,11 @@
 
 ☆☆ [Cesar](https://www.instagram.com/p/DHLMjZURaIY/?hl=en)
 
+☆☆ [Odo](https://www.instagram.com/p/C0dgzOBOGB4/?hl=en)
+
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
+
+☆ [Kochi](https://www.instagram.com/p/C0dhNKEubsC/?hl=en)
 
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
