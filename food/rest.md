@@ -11,5 +11,12 @@
 ☆☆☆ [Odette](https://www.instagram.com/p/C0gH4ShO30z/?hl=en)
 
 # South Korea
+☆☆☆ Mingles
+
+☆☆☆ Mosu
+
+# Thailand
+☆ [Le Du](https://www.instagram.com/p/C0hig7zSF_g/?hl=en)
 
 # Peru
+[Central](https://www.instagram.com/p/C0gQIfQOEux/?hl=en)
