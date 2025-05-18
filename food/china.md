@@ -11,7 +11,7 @@
 
 ☆☆ [Da Vittorio Shanghai]()
 
-☆☆ Canton 8 
+☆☆ [Canton 8](https://www.instagram.com/p/C0ddV7qOfmn/?hl=en)
 
 ☆☆ [Imperial Treasure]()
 
@@ -85,6 +85,8 @@
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
 
 ☆☆ [RAW](https://www.instagram.com/p/DBax4xixDtt/?hl=en)
+
+☆ [MUME](https://www.instagram.com/p/C0dewZuu0ch/?hl=en)
 
 # Taichung
 ☆☆☆ [JL Studio](https://www.instagram.com/p/DBawymNxmJn/?hl=en)
