@@ -17,6 +17,7 @@
 # Kyoto
 
 # Fukuoka
+☆☆☆ [Gyoten](https://www.instagram.com/p/DCmGPvdvLbI/?hl=en)
 
 # Hokkaido
 ☆☆☆ [Moliere]
