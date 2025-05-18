@@ -1,1 +1,26 @@
+# Tokyo
+☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
+
+☆☆ [Den](https://www.instagram.com/p/DG_isXjyVta/?hl=en)
+
+☆☆ [Florilège]
+
+☆☆ [Sant Pau]
+
+☆☆ [Tempura Kondo]
+
+☆ [Mikawa Zezankyo]
+
+# Osaka
+☆☆ [Fujiya 1935]
+
+# Kyoto
+
+# Fukuoka
+
+# Hokkaido
+☆☆☆ [Moliere]
+
+# Niigata
+☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
 
