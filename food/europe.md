@@ -29,6 +29,8 @@
 
 ☆☆☆ [Plenitude](https://www.instagram.com/p/DF324XGSw4S/?hl=en)
 
+☆☆ [FLAVEUR](https://www.instagram.com/p/C0v0u8Xugql/?hl=en)
+
 ☆ [Septime](https://www.instagram.com/p/DF69MvDxgJF/?hl=en)
 
 # Germany
@@ -58,8 +60,13 @@
 
 ☆☆ [Ristorante Glam](https://www.instagram.com/p/C6uaxOdKjhI/?hl=en)
 
+# Netherland
+☆☆ [Parkheuvel](https://www.instagram.com/p/C0vxSCGOt2E/?hl=en)
+
 # Norway
 ☆☆☆ [Maaemo](https://www.instagram.com/p/C0dho7su4cT/?hl=en)
+
+☆ [BARE](https://www.instagram.com/p/C0v1kB5OUDw/?hl=en)
 
 ☆ [Lysverket](https://www.instagram.com/p/C0dmbYEuhj9/?hl=en)
 
