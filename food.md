@@ -1,5 +1,5 @@
 # My Restaurant Guide
-## Greater China
+## [Greater China](/food/china.md)
 ### Shanghai
 ☆☆☆ Ultraviolet
 
