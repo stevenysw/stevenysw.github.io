@@ -3,21 +3,23 @@
 
 ☆☆ [Den](https://www.instagram.com/p/DG_isXjyVta/?hl=en)
 
-☆☆ [Florilège]
+☆☆ Florilège
 
-☆☆ [Sant Pau]
+☆☆ Sant Pau
 
-☆☆ [Tempura Kondo]
+☆☆ Tempura Kondo
 
-☆ [Mikawa Zezankyo]
+☆ Mikawa Zezankyo
 
 # Osaka
-☆☆ [Fujiya 1935]
+☆☆ Fujiya 1935
 
 # Kyoto
 
 # Fukuoka
 ☆☆☆ [Gyoten](https://www.instagram.com/p/DCmGPvdvLbI/?hl=en)
+
+☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
 # Hokkaido
 ☆☆☆ [Moliere]
