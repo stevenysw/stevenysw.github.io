@@ -87,6 +87,8 @@
 
 ☆☆☆ [The French Laundry](/food/tfl.md)
 
+☆☆ [Aubergine](https://www.instagram.com/p/DJhj7MCy-wm/?hl=en)
+
 ☆☆ [Birdsong](/food/bird.md) 
 
 ☆☆ [Lazy Bear](/food/bear.md)
@@ -97,6 +99,14 @@
 ☆☆ [n/naka](/food/naka.md)
 
 ### New York
+
+### Las Vegas
+☆☆ [Restaurant Guy Savoy](https://www.instagram.com/p/DIWeINOJYfc/?hl=en)
+
+### Washington DC
+☆☆ [Jont](https://www.instagram.com/p/DHzJSSiSdM3/?hl=en)
+
+☆☆ [minibar]https://www.instagram.com/p/DHw12t8ScH4/?hl=en
 
 ## Japan
 ### Tokyo
@@ -111,14 +121,16 @@
 ☆ [Mikawa Zezankyo](/food/mikawa.md)
 
 ### Osaka
-[Fujiya 1935](/food/fujiya.md) (☆☆☆☆)
+☆☆ [Fujiya 1935](/food/fujiya.md)
 
 ### Hokkaido
-[Moliere](/food/moliere.md) (☆☆☆☆☆)
+☆☆☆ [Moliere](/food/moliere.md)
 
 ### Other Cities
 
 ## Europe
+### Paris
+☆☆☆ [Plenitude](https://www.instagram.com/p/DF324XGSw4S/?hl=en)
 
 ## The Rest of the World
 
