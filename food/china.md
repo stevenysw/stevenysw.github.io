@@ -78,11 +78,14 @@
 ☆ [Jade River](https://www.instagram.com/p/C0lcqCruMBd/?hl=en)
 
 # Hangzhou
+☆ [Jin Sha](https://www.instagram.com/p/C0vbB0WLPRM/?hl=en)
 
 # Hong Kong
 ☆☆☆ [Forum Restaurant](https://www.instagram.com/p/C0o1Db9LGS5/?hl=en)
 
 ☆☆☆ [Lung King Heen](https://www.instagram.com/p/C0qu2sku1r4/?hl=en)
+
+☆☆☆ [Sushi Shikon](https://www.instagram.com/p/C0vxJQfO5YS/?hl=en)
 
 ☆☆☆ [Ta Vie](https://www.instagram.com/p/C0o3I_TLB-M/?hl=en)
 
