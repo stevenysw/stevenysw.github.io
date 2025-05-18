@@ -39,6 +39,8 @@
 
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
+☆ [Shmone](https://www.instagram.com/p/C76bNORx6RK/?hl=en)
+
 ☆ [Torrisi](https://www.instagram.com/p/C_KSIoNRgXV/?hl=en)
 
 # Las Vegas
