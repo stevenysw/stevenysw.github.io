@@ -35,6 +35,8 @@
 # New York
 ☆☆ [Cesar](https://www.instagram.com/p/DHLMjZURaIY/?hl=en)
 
+☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
+
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
 ☆ [Torrisi](https://www.instagram.com/p/C_KSIoNRgXV/?hl=en)
