@@ -1,6 +1,6 @@
 ## About Me
 
-I am a Data Scientist Research at [Google](https://ads.google.com/). I obtained my Ph.D. in [Statistics from the University of California, Los Angeles](http://statistics.ucla.edu/), in March 2025, under the supervision of [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
+I am a Research Data Scientist at [Google](https://ads.google.com/). I obtained my Ph.D. in [Statistics from the University of California, Los Angeles](http://statistics.ucla.edu/), in March 2025, under the supervision of [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
 
 Before that, I graduated with Highest Distinction from the [University of California, Berkeley](http://www.berkeley.edu), with a dual degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
 
@@ -43,4 +43,4 @@ A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li,
 *   STAT 101B: **Introduction to Design and Analysis of Experiment** (Spring 2023)
 
 ## Personal
-I love [travel](travel.md) and [food](food.md)! Click to view my travel photography gallery and restaurant guide!
+I love [travel](travel.md) and [food](food.md)! Click to view my travel and food photography gallery!
