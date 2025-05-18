@@ -13,6 +13,8 @@
 
 ☆☆ Tempura Kondo
 
+☆ [BIRD LAND](https://www.instagram.com/p/C0da0EjulIX/?hl=en)
+
 ☆ Mikawa Zezankyo
 
 # Osaka
@@ -31,7 +33,9 @@
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
 # Hokkaido
-☆☆☆ [Moliere]
+☆☆☆ [Moliere]()
+
+☆☆ [Tempura Araki](https://www.instagram.com/p/C0dc3M5OO65/?hl=en)
 
 # Niigata
 ☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
