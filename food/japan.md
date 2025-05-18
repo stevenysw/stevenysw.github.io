@@ -1,6 +1,8 @@
 # Tokyo
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
+☆☆☆ [Sushi Saito](https://www.instagram.com/p/C_i_wjfyZ-5/?hl=en)
+
 ☆☆ [ASAHINA Gastronome](https://www.instagram.com/p/C_pRaFsRgWX/?hl=en)
 
 ☆☆ [Den](https://www.instagram.com/p/DG_isXjyVta/?hl=en)
