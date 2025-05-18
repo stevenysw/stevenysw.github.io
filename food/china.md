@@ -69,7 +69,7 @@
 
 ☆ [Yong Fu](https://www.instagram.com/p/DBwAz4UR7il/?hl=en)
 
-☆ Wu You Xian
+☆ [Wu You Xian](https://www.instagram.com/p/DAgOCGbSnqs/?hl=en)
 
 # Beijing
 
