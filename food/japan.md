@@ -1,4 +1,6 @@
 # Tokyo
+☆☆☆ [Harukata](https://www.instagram.com/p/C0gHHwkODIv/?hl=en)
+
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
 ☆☆☆ [Sushi Saito](https://www.instagram.com/p/C_i_wjfyZ-5/?hl=en)
@@ -8,6 +10,8 @@
 ☆☆ [Den](https://www.instagram.com/p/DG_isXjyVta/?hl=en)
 
 ☆☆ Florilège
+
+☆☆ [Ginza Korju](https://www.instagram.com/p/C0dj4mNuVD6/?hl=en)
 
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
 
@@ -21,8 +25,10 @@
 
 ☆ Mikawa Zezankyo
 
+☆ [Sushi Ryujiro](https://www.instagram.com/p/C0gL93HORsC/?hl=en)
+
 # Osaka
-☆☆ Fujiya 1935
+☆☆ [Fujiya 1935](https://www.instagram.com/p/C0gI6CuuiQ5/?hl=en)
 
 ☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
 
