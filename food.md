@@ -106,7 +106,7 @@
 ### Washington DC
 ☆☆ [Jont](https://www.instagram.com/p/DHzJSSiSdM3/?hl=en)
 
-☆☆ [minibar]https://www.instagram.com/p/DHw12t8ScH4/?hl=en
+☆☆ [minibar](https://www.instagram.com/p/DHw12t8ScH4/?hl=en)
 
 ## Japan
 ### Tokyo
@@ -120,8 +120,10 @@
 
 ☆ [Mikawa Zezankyo](/food/mikawa.md)
 
-### Osaka
+### Kansai
 ☆☆ [Fujiya 1935](/food/fujiya.md)
+
+### Kyushu
 
 ### Hokkaido
 ☆☆☆ [Moliere](/food/moliere.md)
@@ -129,8 +131,15 @@
 ### Other Cities
 
 ## Europe
-### Paris
+### France
+☆☆☆ [Assiette Champenoise](https://www.instagram.com/p/DHLxmhkR1Yx/?hl=en)
+
 ☆☆☆ [Plenitude](https://www.instagram.com/p/DF324XGSw4S/?hl=en)
+
+### Germany
+☆☆☆ [Aqua](https://www.instagram.com/p/DHOnXDzPi9K/?hl=en)
+
+### Spain
 
 ## The Rest of the World
 
