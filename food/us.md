@@ -41,7 +41,9 @@
 
 ☆☆ [minibar](https://www.instagram.com/p/DHw12t8ScH4/?hl=en)
 
-# Denver
+# Florida
 
-# Miami
+# Colorado
+☆ [Beckon](https://www.instagram.com/p/C-o7cLXxjcA/?hl=en)
+
 
