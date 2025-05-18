@@ -1,15 +1,17 @@
 # Northern California
-☆☆☆ [Benu]
+☆☆☆ Benu
 
-☆☆☆ [The French Laundry]
+☆☆☆ The French Laundry
 
 ☆☆ [Aubergine](https://www.instagram.com/p/DJhj7MCy-wm/?hl=en)
 
-☆☆ [Birdsong]
+☆☆ Birdsong
 
-☆☆ [Lazy Bear]
+☆☆ Lazy Bear
 
-☆ [Ju-Ni]
+☆ [7 Adams](https://www.instagram.com/p/DAfkOUmyzLZ/?hl=en)
+
+☆ Ju-Ni
 
 # Southern California
 ☆☆ [n/naka]
