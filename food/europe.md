@@ -8,6 +8,8 @@
 
 ☆☆☆ [Noma]()
 
+☆ [Kokkeriet](https://www.instagram.com/p/C0djpCFuhdH/?hl=en)
+
 # France
 ☆☆☆ [Assiette Champenoise](https://www.instagram.com/p/DHLxmhkR1Yx/?hl=en)
 
@@ -38,11 +40,15 @@
 # Norway
 ☆☆☆ [Maaemo](https://www.instagram.com/p/C0dho7su4cT/?hl=en)
 
+☆ [Lysverket](https://www.instagram.com/p/C0dmbYEuhj9/?hl=en)
+
 # Portugal
 ☆☆ [Alma](https://www.instagram.com/p/C0dfv_qO5u5/?hl=en) 
 
 # Spain
 ☆☆☆ [Quique Dacosta](https://www.instagram.com/p/C61E2I0L6TA/?hl=en)
+
+☆☆☆ [Restaurante Arzak](https://www.instagram.com/p/C0dmGxGum1M/?hl=en)
 
 ☆☆ [Ricard Camerena](https://www.instagram.com/p/C6ubkO-KxlZ/?hl=en)
 
