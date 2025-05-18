@@ -13,11 +13,17 @@
 
 ☆ [7 Adams](https://www.instagram.com/p/DAfkOUmyzLZ/?hl=en)
 
+☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
+
 ☆ [Hilda and Jesse](https://www.instagram.com/p/C-4cHO4RuVu/?hl=en)
 
 ☆ Ju-Ni
 
 ☆ [Kiln](https://www.instagram.com/p/C_pXQiHxpzg/?hl=en)
+
+☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
+
+☆ [The Kitchen](https://www.instagram.com/p/C-FDiz4RdhH/?hl=en)
 
 # Southern California
 ☆☆ [n/naka]
