@@ -84,4 +84,9 @@
 # Taipei
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
 
+☆☆ [RAW](https://www.instagram.com/p/DBax4xixDtt/?hl=en)
+
 # Taichung
+☆☆☆ [JL Studio](https://www.instagram.com/p/DBawymNxmJn/?hl=en)
+
+☆ [MINIMAL](https://www.instagram.com/p/DBbqOm3vbKx/?hl=en)
