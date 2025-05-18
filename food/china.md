@@ -1,5 +1,5 @@
 # Shanghai
-☆☆☆ [Taian Table]()
+☆☆☆ [Taian Table](https://www.instagram.com/p/C0q2OuKrVGN/?hl=en)
 
 ☆☆☆ [Ultraviolet](https://www.instagram.com/p/C0gJ6dcOZZI/?hl=en)
 
@@ -7,7 +7,7 @@
 
 ☆☆ 102 House 
 
-☆☆ [8 1/2 Otto E Mezzo BOMBANA]()
+☆☆ [8 1/2 Otto E Mezzo BOMBANA](https://www.instagram.com/p/C0qpVCpuNSh/?hl=en)
 
 ☆☆ [Da Vittorio Shanghai]()
 
@@ -25,7 +25,7 @@
 
 ☆ Fu 1088
 
-☆ [Fu He Hui]()
+☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
 
 ☆ [Gastro Esthetics at DaDong]()
 
@@ -43,11 +43,9 @@
 
 ☆ [Ling Long](https://www.instagram.com/p/DBawSo5RKkv/?hl=en)
 
-☆ [Phenix]()
-
 ☆ Madam Goose
 
-☆ [Maison Lameloise]()
+☆ [Maison Lameloise](https://www.instagram.com/p/C0lc_2zum8A/?hl=en)
 
 ☆ [Meet the Bund]()
 
@@ -56,6 +54,8 @@
 ☆ [Obscura]()
 
 ☆ [Oriental Sense & Palate](https://www.instagram.com/p/DB07rVax2AK/?hl=en)
+
+☆ [Phenix]()
 
 ☆ [Ren He Guan]()
 
@@ -72,14 +72,22 @@
 ☆ [Wu You Xian](https://www.instagram.com/p/DAgOCGbSnqs/?hl=en)
 
 # Beijing
+☆ [Mio](https://www.instagram.com/p/C0lYc5buBue/?hl=en)
 
 # Guangzhou
+☆ [Jade River](https://www.instagram.com/p/C0lcqCruMBd/?hl=en)
 
 # Hangzhou
 
 # Hong Kong
+☆☆☆ [Forum Restaurant](https://www.instagram.com/p/C0o1Db9LGS5/?hl=en)
+
+☆☆☆ [Lung King Heen](https://www.instagram.com/p/C0qu2sku1r4/?hl=en)
+
+☆☆☆ [Ta Vie](https://www.instagram.com/p/C0o3I_TLB-M/?hl=en)
 
 # Macau
+☆☆☆ [Jade Dragon](https://www.instagram.com/p/C0iCr9-xy37/?hl=en)
 
 # Taipei
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
