@@ -33,6 +33,8 @@
 
 ☆ [BIRD LAND](https://www.instagram.com/p/C0da0EjulIX/?hl=en)
 
+☆ [Japanese Soba Noodles Tsuta](https://www.instagram.com/p/C0vzdVqu6l1/?hl=en)
+
 ☆ [Kyobashi Tempura Fukamachi](https://www.instagram.com/p/C0iLFncsZGo/?hl=en)
 
 ☆ [Mikawa Zezankyo](https://www.instagram.com/p/C0uzGqKPJbU/?hl=en)
@@ -75,6 +77,8 @@
 
 # Ishikawa
 ☆☆ [Zeniya](https://www.instagram.com/p/C0q163QLhTe/?hl=en)
+
+☆ [Sushi Mitsukawa](https://www.instagram.com/p/C0vzSpVOodW/?hl=en)
 
 # Tottori
 ☆☆ [Kaniyoshi](https://www.instagram.com/p/C0lR-3xOodC/?hl=en)
