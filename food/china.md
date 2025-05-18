@@ -1,75 +1,75 @@
 # Shanghai
+☆☆☆ [Taian Table]
+
 ☆☆☆ Ultraviolet
 
-☆☆ Canton 8 
-
-☆☆ 御宝轩
-
-☆☆ 逸龙阁
-
-☆☆ 乔尔·卢布松美食坊 
-
-☆☆ [8 1/2 Otto E Mezzo BOMBANA] 
-
-☆☆ [Taian Table]
-
-☆☆ [Da Vittorio Shanghai]
+☆☆ [L'Atelier de Joël Robuchon]
 
 ☆☆ 102 House 
 
-☆ 老正兴
+☆☆ [8 1/2 Otto E Mezzo BOMBANA] 
 
-☆ 老干杯
+☆☆ [Da Vittorio Shanghai]
 
-☆ 大董静安
+☆☆ Canton 8 
 
-☆ Jean Georges
+☆☆ [Imperial Treasure]
 
-☆ 鹅夫人
+☆☆ Yi Long Court
 
-☆ 新荣记
+☆ [Cheng Long Hang]
 
-☆ 家全七福
+☆ DaDong
 
-☆ Le Comptoir de Pierre Gagnaire
+☆ Fu 1015
 
-☆ 利苑
-
-☆ Il Ristorante - Niko Romito
-
-☆ 成隆行蟹王府
-
-☆ 斐霓丝
-
-☆ [Maison Lameloise]
+☆ Fu 1088
 
 ☆ [Fu He Hui]
 
-☆ 大董徐汇
+☆ [Gastro Esthetics at DaDong]
 
-☆ Fu 1039
+☆ [Il Ristorante - Niko Romito]
 
-☆ 遇外滩
+☆ [Jean Georges]
 
-☆ Obscura by 唐香
+☆ Kanpai Classic
 
-☆ 头灶
+☆ [Lao Zheng Xing]
 
-☆ 人和馆
+☆ [Le Comptoir de Pierre Gagnaire]
 
-☆ 唐阁
+☆ [Lei Garden]
 
-☆ 福1015
+☆ [Ling Long]
 
-☆ Ling Long
+☆ [Phenix]
 
-☆ 甬府
+☆ Madam Goose
+
+☆ [Maison Lameloise]
+
+☆ [Meet the Bund]
+
+☆ Moose
+
+☆ [Obscura]
 
 ☆ [Oriental Sense & Palate](https://www.instagram.com/p/DB07rVax2AK/?hl=en)
 
-☆ 菁禧荟
+☆ [Ren He Guan]
 
-☆ 屋有鲜
+☆ [Seventh Son]
+
+☆ [T'ang Court]
+
+☆ [Tou Zao]
+
+☆ [Xin Rong Ji]
+
+☆ [Yong Fu]
+
+☆ Wu You Xian
 
 # Beijing
 
