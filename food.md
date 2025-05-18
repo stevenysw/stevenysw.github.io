@@ -99,6 +99,9 @@
 ☆☆ [n/naka]
 
 ### New York
+☆☆ [Cesar](https://www.instagram.com/p/DHLMjZURaIY/?hl=en)
+
+☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
 ### Las Vegas
 ☆☆ [Restaurant Guy Savoy](https://www.instagram.com/p/DIWeINOJYfc/?hl=en)
