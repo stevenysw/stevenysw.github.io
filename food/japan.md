@@ -15,6 +15,8 @@
 
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
 
+☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/C0gRZzxuuEO/?hl=en)
+
 ☆☆ [SANT PAU](https://www.instagram.com/p/C0dfQ52ubjQ/?hl=en)
 
 ☆☆ Tempura Kondo
@@ -41,6 +43,9 @@
 ☆☆☆ [Gyoten](https://www.instagram.com/p/DCmGPvdvLbI/?hl=en)
 
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
+
+# Kagawa
+☆☆ [Kurumazushi](https://www.instagram.com/p/C0gQlKdObC9/?hl=en)
 
 # Hokkaido
 ☆☆☆ [Moliere]()
