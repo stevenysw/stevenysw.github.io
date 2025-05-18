@@ -59,6 +59,8 @@
 ☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
 
 # Kyoto
+☆☆☆ [Kikunoi Honten](https://www.instagram.com/p/C0vejqQLra0/?hl=en)
+
 ☆☆ [Ogata](https://www.instagram.com/p/C0kEMD-P3-Y/?hl=en)
 
 ☆ [Unagi Hirokawa](https://www.instagram.com/p/C0quTjMOA-a/?hl=en)
@@ -68,6 +70,8 @@
 
 # Hyogo
 ☆ [bb9](https://www.instagram.com/p/C0oykg2rDeo/?hl=en)
+
+☆ [La Maison de GRACIANI](https://www.instagram.com/p/C0vykumungL/?hl=en)
 
 # Ishikawa
 ☆☆ [Zeniya](https://www.instagram.com/p/C0q163QLhTe/?hl=en)
@@ -86,6 +90,9 @@
 
 ☆ [Tenzushi Kyomachi](https://www.instagram.com/p/C0o1VkqLAD4/?hl=en)
 
+# Kumamoto
+☆ [Sushi Senpachi](https://www.instagram.com/p/C0u1bAlP4_6/?hl=en)
+
 # Kagawa
 ☆☆ [Kurumazushi](https://www.instagram.com/p/C0gQlKdObC9/?hl=en)
 
@@ -95,6 +102,8 @@
 ☆☆☆ [Moliere]()
 
 ☆☆ [Tempura Araki](https://www.instagram.com/p/C0dc3M5OO65/?hl=en)
+
+☆ [Sushidokoro Minami](https://www.instagram.com/p/C0vhm2WrRgE/?hl=en)
 
 ☆ [Sushi Minato](https://www.instagram.com/p/C0lXQrmucJ3/?hl=en)
 
