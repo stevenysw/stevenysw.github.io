@@ -24,11 +24,22 @@
 
 ☆☆ [Restaurant Tim Raue](https://www.instagram.com/p/DFTqmq7KLxn/?hl=en)
 
+# Greece
+☆☆ [Spondi](https://www.instagram.com/p/C0diCM3u6Xl/?hl=en)
+
 # Iceland
 ☆ [ÓX](https://www.instagram.com/p/DFTq7raqVYq/?hl=en)
 
 # Italy
+☆☆☆ [La Pergola](https://www.instagram.com/p/C0dilbjOiJ4/?hl=en)
+
 ☆☆ [Ristorante Glam](https://www.instagram.com/p/C6uaxOdKjhI/?hl=en)
+
+# Norway
+☆☆☆ [Maaemo](https://www.instagram.com/p/C0dho7su4cT/?hl=en)
+
+# Portugal
+☆☆ [Alma](https://www.instagram.com/p/C0dfv_qO5u5/?hl=en) 
 
 # Spain
 ☆☆☆ [Quique Dacosta](https://www.instagram.com/p/C61E2I0L6TA/?hl=en)
