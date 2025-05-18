@@ -7,6 +7,8 @@
 
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
+☆☆☆ [Nihonryori Ryugin](https://www.instagram.com/p/C0v162HOc_G/?hl=en)
+
 ☆☆☆ [Sushi Saito](https://www.instagram.com/p/C_i_wjfyZ-5/?hl=en)
 
 ☆☆ [ASAHINA Gastronome](https://www.instagram.com/p/C_pRaFsRgWX/?hl=en)
@@ -20,6 +22,8 @@
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
 
 ☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/C0gRZzxuuEO/?hl=en)
+
+☆☆ [Ryuzu](https://www.instagram.com/p/C0v4QHTrTN4/?hl=en)
 
 ☆☆ [SANT PAU](https://www.instagram.com/p/C0dfQ52ubjQ/?hl=en)
 
@@ -56,9 +60,13 @@
 ☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
 
 # Osaka
+☆☆☆ [Taian](https://www.instagram.com/p/C0v2pcoriEX/?hl=en)
+
 ☆☆ [Fujiya 1935](https://www.instagram.com/p/C0gI6CuuiQ5/?hl=en)
 
 ☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
+
+☆ [Torisho Ishii](https://www.instagram.com/p/C0v5fBGLNlP/?hl=en)
 
 # Kyoto
 ☆☆☆ [Kikunoi Honten](https://www.instagram.com/p/C0vejqQLra0/?hl=en)
@@ -103,7 +111,7 @@
 # Hokkaido
 ☆☆☆ [Hanakoji Sawada](https://www.instagram.com/p/C0tScHrLad6/?hl=en)
 
-☆☆☆ [Moliere]()
+☆☆☆ [Moliere](https://www.instagram.com/p/C0vz89Xu_3q/?hl=en)
 
 ☆☆ [Tempura Araki](https://www.instagram.com/p/C0dc3M5OO65/?hl=en)
 
