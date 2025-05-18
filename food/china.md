@@ -79,7 +79,7 @@
 
 # Hong Kong
 
-# Macua
+# Macau
 
 # Taipei
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
