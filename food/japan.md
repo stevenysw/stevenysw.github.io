@@ -1,4 +1,6 @@
 # Tokyo
+☆☆☆ [Azabu Kadowaki](https://www.instagram.com/p/C4Nna7CLgOG/?hl=en)
+
 ☆☆☆ [Harukata](https://www.instagram.com/p/C0gHHwkODIv/?hl=en)
 
 ☆☆☆ [Kagurazaka Ishikawa](https://www.instagram.com/p/C0qrAEduJTF/?hl=en)
@@ -8,6 +10,8 @@
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
 ☆☆☆ [Nihonryori Ryugin](https://www.instagram.com/p/C0v162HOc_G/?hl=en)
+
+☆☆☆ [Sazenka](https://www.instagram.com/p/C2zfSEVrjWO/?hl=en)
 
 ☆☆☆ [Sushi Saito](https://www.instagram.com/p/C_i_wjfyZ-5/?hl=en)
 
@@ -45,6 +49,8 @@
 
 ☆ [BIRD LAND](https://www.instagram.com/p/C0da0EjulIX/?hl=en)
 
+☆ [Edomae Shinsaku](https://www.instagram.com/p/C2wcdvtOICO/?hl=en)
+
 ☆ [Japanese Soba Noodles Tsuta](https://www.instagram.com/p/C0vzdVqu6l1/?hl=en)
 
 ☆ [Kyobashi Tempura Fukamachi](https://www.instagram.com/p/C0iLFncsZGo/?hl=en)
@@ -63,7 +69,11 @@
 
 ☆ [Sushi Ryujiro](https://www.instagram.com/p/C0gL93HORsC/?hl=en)
 
+☆ [Sushi Takamitsu](https://www.instagram.com/p/C2uQ2XPuyxw/?hl=en)
+
 ☆ [TACUBO](https://www.instagram.com/p/C07bylvvOgA/?hl=en)
+
+☆ [Tamawarai](https://www.instagram.com/p/C2w0CiHr7-Y/?hl=en)
 
 ☆ [Ten Yokota](https://www.instagram.com/p/C1XL3cMOVvd/?hl=en)
 
@@ -72,10 +82,17 @@
 # Kanagawa
 ☆☆☆ [Kouan](https://www.instagram.com/p/C0h3KbsPBqG/?hl=en)
 
+☆ [Unagi Tei Unagi](https://www.instagram.com/p/C37A_JmO_k6/?hl=en)
+
+# Aichi
+☆☆ [Tempura Niitome](https://www.instagram.com/p/C2wSQe0OKl8/?hl=en)
+
 # Niigata
 ☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
 
 # Osaka
+☆☆☆ [Hajime](https://www.instagram.com/p/C2ZcouHONnU/?hl=en)
+
 ☆☆☆ [Taian](https://www.instagram.com/p/C0v2pcoriEX/?hl=en)
 
 ☆☆ [Fujiya 1935](https://www.instagram.com/p/C0gI6CuuiQ5/?hl=en)
@@ -102,9 +119,20 @@
 ☆ [La Maison de GRACIANI](https://www.instagram.com/p/C0vykumungL/?hl=en)
 
 # Ishikawa
+☆☆ [MAKINONCÎ](https://www.instagram.com/p/C4NqKGxLvjr/?hl=en)
+
+☆☆ [respiración](https://www.instagram.com/p/C37B1KEujR6/?hl=en)
+
+☆☆ [Sushidokoro Mekumi](https://www.instagram.com/p/C4NpQkoLJPz/?hl=en)
+
+☆☆ [Tempura Koizumi](https://www.instagram.com/p/C4Nm6VlLvAs/?hl=en)
+
 ☆☆ [Zeniya](https://www.instagram.com/p/C0q163QLhTe/?hl=en)
 
 ☆ [Sushi Mitsukawa](https://www.instagram.com/p/C0vzSpVOodW/?hl=en)
+
+# Toyama
+☆☆ [L'evo](https://www.instagram.com/p/C4AWOHCOkSI/?hl=en)
 
 # Tottori
 ☆☆ [Kaniyoshi](https://www.instagram.com/p/C0lR-3xOodC/?hl=en)
