@@ -18,7 +18,9 @@
 # Denmark 
 ☆☆☆ [Geranium](https://www.instagram.com/p/C6xuC5cO3S1/?hl=en)
 
-☆☆☆ [Noma]()
+☆☆☆ [Jordnær](https://www.instagram.com/p/C6uY6ZtqNO-/?hl=en)
+
+☆☆☆ [Noma](https://www.instagram.com/p/C6sBuPmqr64/?hl=en)
 
 ☆ [Kokkeriet](https://www.instagram.com/p/C0djpCFuhdH/?hl=en)
 
@@ -84,6 +86,8 @@
 ☆☆☆ [Enrico Bartolini](https://www.instagram.com/p/C0kYLAQvB97/?hl=en)
 
 ☆☆☆ [La Pergola](https://www.instagram.com/p/C0dilbjOiJ4/?hl=en)
+
+☆☆☆ [Osteria Francescana](https://www.instagram.com/p/C6sCW5Wqiym/?hl=en)
 
 ☆☆☆ [Piazza Duomo](https://www.instagram.com/p/C0kbYhzvKP-/?hl=en)
 
