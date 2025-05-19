@@ -63,6 +63,8 @@
 
 ☆ [Imafuku](https://www.instagram.com/p/C4Ybml0P-Je/?hl=en)
 
+☆ [Ishibashi](https://www.instagram.com/p/C4iD8Pyr3mM/?hl=en)
+
 ☆ [Japanese Soba Noodles Tsuta](https://www.instagram.com/p/C0vzdVqu6l1/?hl=en)
 
 ☆ [Kyobashi Tempura Fukamachi](https://www.instagram.com/p/C0iLFncsZGo/?hl=en)
@@ -76,6 +78,8 @@
 ☆ [Nodaiwa Azabu Iikura Honten](https://www.instagram.com/p/C4dF_kRLxBb/?hl=en)
 
 ☆ [Obana](https://www.instagram.com/p/C0z0vQRPNgW/?hl=en)
+
+☆ [Shinjuku Kappo Nakajima](https://www.instagram.com/p/C4iHG1YL478/?hl=en)
 
 ☆ [Soba House Konjiki-Hototogisu](https://www.instagram.com/p/C0qrY1xuAfj/?hl=en)
 
@@ -132,6 +136,8 @@
 
 ☆☆ [KAHALA](https://www.instagram.com/p/C4NuRugrrxl/?hl=en)
 
+☆☆ [Kushikatsu Bon](https://www.instagram.com/p/C4gKW2qRqCq/?hl=en)
+
 ☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
 
 ☆ [Sushi Sanshin](https://www.instagram.com/p/C4NqxZvruCv/?hl=en)
@@ -154,6 +160,8 @@
 ☆ [bb9](https://www.instagram.com/p/C0oykg2rDeo/?hl=en)
 
 ☆ [La Maison de GRACIANI](https://www.instagram.com/p/C0vykumungL/?hl=en)
+
+☆ [Setsugekka](https://www.instagram.com/p/C4eBajeSBdl/?hl=en)
 
 # Ishikawa
 ☆☆ [MAKINONCÎ](https://www.instagram.com/p/C4NqKGxLvjr/?hl=en)
@@ -186,6 +194,8 @@
 
 ☆☆ [Imoto](https://www.instagram.com/p/C4XV68OOMmI/?hl=en)
 
+☆ [Fujii Unagi](https://www.instagram.com/p/C4eCK_oyssF/?hl=en)
+
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
 ☆ [Raisin d'Or](https://www.instagram.com/p/C4bGr7Cv6ds/?hl=en)
@@ -217,6 +227,8 @@
 
 ☆ [ASPERGES](https://www.instagram.com/p/C4ahYQcLbv6/?hl=en)
 
+☆ [Kishin](https://www.instagram.com/p/C4gK69CxUnp/?hl=en)
+
 ☆ [Out of Africa](https://www.instagram.com/p/C01ojxAu_fp/?hl=en)
 
 ☆ [Sushidokoro Minami](https://www.instagram.com/p/C0vhm2WrRgE/?hl=en)
@@ -224,6 +236,8 @@
 ☆ [Sushi Minato](https://www.instagram.com/p/C0lXQrmucJ3/?hl=en)
 
 ☆ [Suyama](https://www.instagram.com/p/C1hOzVROi1R/?hl=en)
+
+☆ [Unagi Kadowaki](https://www.instagram.com/p/C4gOV24xiKS/?hl=en)
 
 ☆ [Vin](https://www.instagram.com/p/C4TSlbhxXUT/?hl=en)
 
