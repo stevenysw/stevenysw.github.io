@@ -69,6 +69,8 @@
 
 ☆ [Kiln](https://www.instagram.com/p/C_pXQiHxpzg/?hl=en)
 
+☆ [Kin Khao](https://www.instagram.com/p/C4kwMMErqCu/?hl=en)
+
 ☆ [Luce](https://www.instagram.com/p/C0u_cwLpO3R/?hl=en)
 
 ☆ [Madcap](https://www.instagram.com/p/C4iF3FjrVCI/?hl=en)
