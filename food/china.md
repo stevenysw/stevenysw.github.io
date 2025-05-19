@@ -23,7 +23,7 @@
 
 ☆ [Fu 1015](https://www.instagram.com/p/DAgOlXKyTbt/?hl=en)
 
-☆ Fu 1088
+☆ [Fu 1088](https://www.instagram.com/p/DJ08S2Rx2Nu/)
 
 ☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
 
