@@ -95,6 +95,8 @@
 
 ☆ [IYO](https://www.instagram.com/p/C4eCY16SVzi/?hl=en)
 
+☆ [Lido 84](https://www.instagram.com/p/C6uait0Kkq4/?hl=en)
+
 # Malta
 ☆☆ [ION Harbour](https://www.instagram.com/p/C4Vxe23xFlm/?hl=en)
 
@@ -115,6 +117,9 @@
 
 ☆☆ [Belcanto](https://www.instagram.com/p/C0gR_VXu8No/?hl=en)
 
+# Slovenia
+☆☆☆ [Hiša Franko](https://www.instagram.com/p/C6uZx-iKOlm/?hl=en)
+
 # Spain
 ☆☆☆ [ABaC](https://www.instagram.com/p/C0yOhzSObHM/?hl=en)
 
@@ -129,6 +134,8 @@
 ☆☆☆ [Quique Dacosta](https://www.instagram.com/p/C61E2I0L6TA/?hl=en)
 
 ☆☆ [Angle](https://www.instagram.com/p/C4TS7Pwx4We/?hl=en)
+
+☆☆ [El Poblet](https://www.instagram.com/p/C6uZ75VK3rQ/?hl=en)
 
 ☆☆ [Moments](https://www.instagram.com/p/C0lcaY5uKRd/?hl=en)
 
