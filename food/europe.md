@@ -31,7 +31,9 @@
 
 ☆☆☆ [Plenitude](https://www.instagram.com/p/DF324XGSw4S/?hl=en)
 
-☆☆ [FLAVEUR](https://www.instagram.com/p/C0v0u8Xugql/?hl=en)
+☆☆ [Flaveur](https://www.instagram.com/p/C0v0u8Xugql/?hl=en)
+
+☆☆ [JY's](https://www.instagram.com/p/C01ngRDOw9Q/?hl=en)
 
 ☆ [Septime](https://www.instagram.com/p/DF69MvDxgJF/?hl=en)
 
@@ -99,3 +101,5 @@
 
 # United Kingdom
 ☆☆☆ [Restaurant Gordon Ramsay](https://www.instagram.com/p/C0gHdWsO0cO/?hl=en)
+
+☆ [St. John](https://www.instagram.com/p/C2Vsi9lyAN7/?hl=en)
