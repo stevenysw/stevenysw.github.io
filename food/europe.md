@@ -103,7 +103,7 @@
 # Netherland
 ☆☆ [Parkheuvel](https://www.instagram.com/p/C0vxSCGOt2E/?hl=en)
 
-☆☆ Spectrum
+☆☆ [Spectrum](https://www.instagram.com/p/DJ06glbxhag/)
 
 ☆ [RIJKS](https://www.instagram.com/p/C4TTIH9RNq-/?hl=en)
 
@@ -149,6 +149,11 @@
 ☆☆☆ [Frantzen](https://www.instagram.com/p/DF31JgHyiCJ/?hl=en)
 
 ☆☆ [Gastrologik](https://www.instagram.com/p/C0yKzUQrMpe/?hl=en)
+
+# Switzerland
+☆☆☆ [Memories](https://www.instagram.com/p/C6ZeRBTqATa/?igsh=NTc4MTIwNjQ2YQ%3D%3D)
+
+☆ verve by sven
 
 # United Kingdom
 ☆☆☆ [Restaurant Gordon Ramsay](https://www.instagram.com/p/C0gHdWsO0cO/?hl=en)
