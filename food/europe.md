@@ -1,6 +1,8 @@
 # Austria
 ☆☆ [Steirereck](https://www.instagram.com/p/C0gDUhtOtaJ/?hl=en)
 
+☆ [Carpe Diem Finest Fingerfood](https://www.instagram.com/p/C4dGoYjr3zn/?hl=en)
+
 ☆ [Das LOFT](https://www.instagram.com/p/C0yOEFGOaQ6/?hl=en)
 
 # Belgium
@@ -126,6 +128,8 @@
 
 ☆☆ [Ricard Camerena](https://www.instagram.com/p/C6ubkO-KxlZ/?hl=en)
 
+☆ [Xerta](https://www.instagram.com/p/C4afYGhr6F4/?hl=en)
+
 # Sweden
 ☆☆☆ [Frantzen](https://www.instagram.com/p/DF31JgHyiCJ/?hl=en)
 
@@ -135,3 +139,5 @@
 ☆☆☆ [Restaurant Gordon Ramsay](https://www.instagram.com/p/C0gHdWsO0cO/?hl=en)
 
 ☆ [St. John](https://www.instagram.com/p/C2Vsi9lyAN7/?hl=en)
+
+☆ [Yauatcha](https://www.instagram.com/p/C4bLEnfvdJx/?hl=en)
