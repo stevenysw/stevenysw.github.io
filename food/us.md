@@ -1,4 +1,6 @@
 # Northern California
+☆☆☆ [Atelier Crenn](https://www.instagram.com/p/C4YbG0Pp45_/?hl=en)
+
 ☆☆☆ [Benu](https://www.instagram.com/p/C0kdsqsPltA/?hl=en)
 
 ☆☆☆ [Coi](https://www.instagram.com/p/C0lbyLJuPlZ/?hl=en)
@@ -70,6 +72,8 @@
 
 ☆☆ [Hayato](https://www.instagram.com/p/C0qqAdAOXZo/?hl=en)
 
+☆☆ [Melisse](https://www.instagram.com/p/C4WB1P4vj3s/?hl=en)
+
 ☆☆ [n/naka](https://www.instagram.com/p/C2ZYZTfuFTA/?hl=en)
 
 ☆☆ [Providence](https://www.instagram.com/p/C4VwT2zxgYU/?hl=en)
@@ -77,6 +81,8 @@
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
+
+☆ [Gucci Osteria da Massimo Bottura](https://www.instagram.com/p/C4X7zJ3RqiO/?hl=en)
 
 ☆ [Heritage](https://www.instagram.com/p/C01nsWYOXAT/?hl=en)
 
@@ -98,6 +104,8 @@
 
 ☆ [Sushi Kaneyoshi](https://www.instagram.com/p/C0v3yA2LoMY/?hl=en)
 
+☆ [Sushi Tadokoro](https://www.instagram.com/p/C4YbVqyPBLP/?hl=en)
+
 ☆ [Valle](https://www.instagram.com/p/C0tQdcfObRf/?hl=en)
 
 ☆ [UKA](https://www.instagram.com/p/DFEBs0KyrOh/?hl=en)
@@ -106,6 +114,8 @@
 ☆☆☆ [Chef's Table at Brooklyn Fare](https://www.instagram.com/p/C2VtDSNy3Lz/?hl=en) 
 
 ☆☆☆ [Eleven Madison Park](https://www.instagram.com/p/C0v5vv3LOzN/?hl=en)
+
+☆☆☆ [Jungsik](https://www.instagram.com/p/C4XVivLum5X/?hl=en)
 
 ☆☆☆ [Le Bernardin](https://www.instagram.com/p/C0yS77gOcKA/?hl=en)
 
@@ -137,6 +147,8 @@
 
 ☆ [Cote](https://www.instagram.com/p/C0-PUI6Prci/?hl=en)
 
+☆ [Essential by Christophe](https://www.instagram.com/p/C4Ya110pCf7/?hl=en)
+
 ☆ [Estela](https://www.instagram.com/p/C0v3hBJLw25/?hl=en)
 
 ☆ [Jeju Noodle Bar](https://www.instagram.com/p/C0v4ZA5LeAB/?hl=en)
@@ -146,6 +158,8 @@
 ☆ [Kochi](https://www.instagram.com/p/C0dhNKEubsC/?hl=en)
 
 ☆ [Kosaka](https://www.instagram.com/p/C0zo1h3Prxw/?hl=en)
+
+☆ [KyoYa](https://www.instagram.com/p/C4V36hJRVjK/?hl=en)
 
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
