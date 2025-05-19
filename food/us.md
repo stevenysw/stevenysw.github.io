@@ -15,6 +15,8 @@
 
 ☆☆ [Lazy Bear](https://www.instagram.com/p/C0qxld4u-1Z/?hl=en)
 
+☆☆ [Sons & Daughters](https://www.instagram.com/p/C0yKMe8Limf/?hl=en)
+
 ☆☆ [The Harbor House Inn](https://www.instagram.com/p/C-3g1dPyivM/?hl=en)
 
 ☆ [7 Adams](https://www.instagram.com/p/DAfkOUmyzLZ/?hl=en)
@@ -60,6 +62,8 @@
 
 ☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
 
+☆ [Orsa & Winston](https://www.instagram.com/p/C0yOtxjOP8n/?hl=en)
+
 ☆ [Q Sushi](https://www.instagram.com/p/C0qusVhOBqE/?hl=en)
 
 ☆ [Sushi Kaneyoshi](https://www.instagram.com/p/C0v3yA2LoMY/?hl=en)
@@ -70,6 +74,8 @@
 
 # New York
 ☆☆☆ [Eleven Madison Park](https://www.instagram.com/p/C0v5vv3LOzN/?hl=en)
+
+☆☆ [Aska](https://www.instagram.com/p/C0yMNEdOXES/?hl=en)
 
 ☆☆ [Atomix](https://www.instagram.com/p/C0qyCVkOHQZ/?hl=en)
 
