@@ -19,6 +19,8 @@
 
 ☆☆ [Ginza Korju](https://www.instagram.com/p/C0dj4mNuVD6/?hl=en)
 
+☆☆ [Ginza Shinohara](https://www.instagram.com/p/C0yL18uukXl/?hl=en)
+
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
 
 ☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/C0gRZzxuuEO/?hl=en)
@@ -43,7 +45,11 @@
 
 ☆ [Mikawa Zezankyo](https://www.instagram.com/p/C0uzGqKPJbU/?hl=en)
 
+☆ [Obana](https://www.instagram.com/p/C0z0vQRPNgW/?hl=en)
+
 ☆ [Soba House Konjiki-Hototogisu](https://www.instagram.com/p/C0qrY1xuAfj/?hl=en)
+
+☆ [Sosakumenkobo NAKIRYU](https://www.instagram.com/p/C00FzI5IO8C/?hl=en)
 
 ☆ [Sukiyaki Kappou Hiyama](https://www.instagram.com/p/C0qtXytO_9o/?hl=en)
 
