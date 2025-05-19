@@ -3,6 +3,8 @@
 
 ☆☆☆ [Coi](https://www.instagram.com/p/C0lbyLJuPlZ/?hl=en)
 
+☆☆☆ [SingleThread Farm](https://www.instagram.com/p/C0z0pD8vsu6/?hl=en)
+
 ☆☆☆ [The French Laundry](https://www.instagram.com/p/C0qpnEXOdSl/?hl=en)
 
 ☆☆☆ [Saison](https://www.instagram.com/p/C0qqu3RuZSa/?hl=en)
@@ -29,6 +31,8 @@
 
 ☆ [jū-ni](https://www.instagram.com/p/C0kD6wdvTsA/?hl=en)
 
+☆ [Keiko Nob Hill](https://www.instagram.com/p/C00FDnjM6al/?hl=en)
+
 ☆ [Kiln](https://www.instagram.com/p/C_pXQiHxpzg/?hl=en)
 
 ☆ [Luce](https://www.instagram.com/p/C0u_cwLpO3R/?hl=en)
@@ -43,6 +47,8 @@
 
 ☆ [The Kitchen](https://www.instagram.com/p/C-FDiz4RdhH/?hl=en)
 
+☆ [The Shota](https://www.instagram.com/p/C00EBqGs9jS/?hl=en)
+
 ☆ [Wakuriya](https://www.instagram.com/p/C0gXnm2OQod/?hl=en)
 
 # Southern California
@@ -51,6 +57,8 @@
 ☆☆ [Hayato](https://www.instagram.com/p/C0qqAdAOXZo/?hl=en)
 
 ☆☆ [n/naka]()
+
+☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
 
@@ -74,6 +82,8 @@
 
 # New York
 ☆☆☆ [Eleven Madison Park](https://www.instagram.com/p/C0v5vv3LOzN/?hl=en)
+
+☆☆☆ [Le Bernardin](https://www.instagram.com/p/C0yS77gOcKA/?hl=en)
 
 ☆☆ [Aska](https://www.instagram.com/p/C0yMNEdOXES/?hl=en)
 
@@ -99,6 +109,8 @@
 
 ☆ [Kochi](https://www.instagram.com/p/C0dhNKEubsC/?hl=en)
 
+☆ [Kosaka](https://www.instagram.com/p/C0zo1h3Prxw/?hl=en)
+
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
 ☆ [Shmone](https://www.instagram.com/p/C76bNORx6RK/?hl=en)
@@ -111,6 +123,8 @@
 
 # Chicago
 ☆☆☆ [Smyth](https://www.instagram.com/p/C0q3vJfr2cG/?hl=en)
+
+☆☆ [Ever](https://www.instagram.com/p/C01mGgcu6Hs/?hl=en)
 
 # Washington DC
 ☆☆ [Jont](https://www.instagram.com/p/DHzJSSiSdM3/?hl=en)
