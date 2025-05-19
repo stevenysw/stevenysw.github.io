@@ -12,12 +12,14 @@
 
 ☆☆☆ [Odette](https://www.instagram.com/p/C0gH4ShO30z/?hl=en)
 
+☆ [Liao Fan Hawker Chan](https://www.instagram.com/p/C4TPmeNR5rO/?hl=en)
+
 # South Korea
 ☆☆☆ [Gaon](https://www.instagram.com/p/C2VuC2vyO4x/?hl=en)
 
 ☆☆☆ [Mingles](https://www.instagram.com/p/C0labBROHUs/?hl=en)
 
-☆☆☆ Mosu
+☆☆☆ [Mosu](https://www.instagram.com/p/C4TSawOxrUD/?hl=en)
 
 ☆☆ [Jungsik](https://www.instagram.com/p/C0v1IPBu7DI/?hl=en)
 
