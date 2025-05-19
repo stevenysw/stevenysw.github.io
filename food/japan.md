@@ -57,6 +57,8 @@
 
 ☆ [Edomae Shinsaku](https://www.instagram.com/p/C2wcdvtOICO/?hl=en)
 
+☆ [Imafuku](https://www.instagram.com/p/C4Ybml0P-Je/?hl=en)
+
 ☆ [Japanese Soba Noodles Tsuta](https://www.instagram.com/p/C0vzdVqu6l1/?hl=en)
 
 ☆ [Kyobashi Tempura Fukamachi](https://www.instagram.com/p/C0iLFncsZGo/?hl=en)
@@ -77,9 +79,13 @@
 
 ☆ [Sushi Takamitsu](https://www.instagram.com/p/C2uQ2XPuyxw/?hl=en)
 
+☆ [Sushidokoro Kiraku](https://www.instagram.com/p/C4X8Q9DxO0R/?hl=en)
+
 ☆ [TACUBO](https://www.instagram.com/p/C07bylvvOgA/?hl=en)
 
 ☆ [Tamawarai](https://www.instagram.com/p/C2w0CiHr7-Y/?hl=en)
+
+☆ [Tempura Miyashiro](https://www.instagram.com/p/C4V62Atx0DT/?hl=en)
 
 ☆ [Ten Yokota](https://www.instagram.com/p/C1XL3cMOVvd/?hl=en)
 
@@ -93,7 +99,12 @@
 ☆ [Unagi Tei Unagi](https://www.instagram.com/p/C37A_JmO_k6/?hl=en)
 
 # Aichi
+☆☆ [Reminiscence](https://www.instagram.com/p/C4V23JvxITU/?hl=en) 
+
 ☆☆ [Tempura Niitome](https://www.instagram.com/p/C2wSQe0OKl8/?hl=en)
+
+# Miyagi
+☆ [Nacree](https://www.instagram.com/p/C4X8Artx3wm/?hl=en)
 
 # Niigata
 ☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
@@ -146,6 +157,9 @@
 # Toyama
 ☆☆ [L'evo](https://www.instagram.com/p/C4AWOHCOkSI/?hl=en)
 
+# Hiroshima
+☆ [OZAWA](https://www.instagram.com/p/C4V4Gy1xS4N/?hl=en)
+
 # Tottori
 ☆☆ [Kaniyoshi](https://www.instagram.com/p/C0lR-3xOodC/?hl=en)
 
@@ -155,6 +169,8 @@
 ☆☆☆ [Sushi Sakai](https://www.instagram.com/p/C0kdAy1P0Bh/?hl=en)
 
 ☆☆ [Chakaiseki Nakahan](https://www.instagram.com/p/C0kcvh3vn9s/?hl=en)
+
+☆☆ [Imoto](https://www.instagram.com/p/C4XV68OOMmI/?hl=en)
 
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
