@@ -3,6 +3,8 @@
 
 ☆☆ [IDES](https://www.instagram.com/p/C5iXbqRy2Ef/?hl=en)
 
+☆ [Rick Shores](https://www.instagram.com/p/C5GCarQy0tq/?hl=en)
+
 ☆ [Palette](https://www.instagram.com/p/C5E7QNuyrqn/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Canada
