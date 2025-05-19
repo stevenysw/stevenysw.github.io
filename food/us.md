@@ -15,11 +15,15 @@
 
 ☆☆☆ [Saison](https://www.instagram.com/p/C0qqu3RuZSa/?hl=en)
 
+☆☆ [Acquerello](https://www.instagram.com/p/C4ah8lGrbfK/?hl=en)
+
 ☆☆ [Aubergine](https://www.instagram.com/p/DJhj7MCy-wm/?hl=en)
 
 ☆☆ [Birdsong](https://www.instagram.com/p/C0vwVi1uihH/?hl=en)
 
 ☆☆ [Californios](https://www.instagram.com/p/C0lE0quuzsi/?hl=en)
+
+☆☆ [Commis](https://www.instagram.com/p/C4ahqPWrvfb/?hl=en)
 
 ☆☆ [Lazy Bear](https://www.instagram.com/p/C0qxld4u-1Z/?hl=en)
 
@@ -37,11 +41,19 @@
 
 ☆ [Bar Crenn](https://www.instagram.com/p/C4YeH1HP7ib/?hl=en)
 
+☆ [Barndiva](https://www.instagram.com/p/C4bHwtrvmaS/?hl=en)
+
+☆ [[Cyrus](https://www.instagram.com/p/C4bIdHhvl0X/?hl=en)
+
 ☆ [Gary Danko](https://www.instagram.com/p/C0de8xsOpxF/?hl=en)
+
+☆ [Hashiri](https://www.instagram.com/p/C4dFz19rtdk/?hl=en)
 
 ☆ [Hilda and Jesse](https://www.instagram.com/p/C-4cHO4RuVu/?hl=en)
 
 ☆ [jū-ni](https://www.instagram.com/p/C0kD6wdvTsA/?hl=en)
+
+☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
 
 ☆ [Keiko Nob Hill](https://www.instagram.com/p/C00FDnjM6al/?hl=en)
 
@@ -52,6 +64,8 @@
 ☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
 
 ☆ [Nari](https://www.instagram.com/p/C01qBK6O0PA/?hl=en)
+
+☆ [Omakase](https://www.instagram.com/p/C4bKuJrPVgp/?hl=en)
 
 ☆ [Protégé](https://www.instagram.com/p/C2ZaL3LOKtA/?hl=en)
 
@@ -82,6 +96,8 @@
 
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
+☆ [Bistro Na](https://www.instagram.com/p/C4dXaz-LWzl/?hl=en)
+
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
 
 ☆ [Dialogue](https://www.instagram.com/p/C4YeaQIPu5z/?hl=en)
@@ -102,6 +118,8 @@
 
 ☆ [Pasta|Bar](https://www.instagram.com/p/C1UgwWer05V/?hl=en)
 
+☆ [Phenakite](https://www.instagram.com/p/C4bMI5EPmtw/?hl=en)
+
 ☆ [Q Sushi](https://www.instagram.com/p/C0qusVhOBqE/?hl=en)
 
 ☆ [Sushi Inaba](https://www.instagram.com/p/C4TTg5lRVQl/?hl=en)
@@ -121,6 +139,8 @@
 
 ☆☆☆ [Jungsik](https://www.instagram.com/p/C4XVivLum5X/?hl=en)
 
+☆☆☆ [Masa](https://www.instagram.com/p/C4bGTT4vJCj/?hl=en)
+
 ☆☆☆ [Le Bernardin](https://www.instagram.com/p/C0yS77gOcKA/?hl=en)
 
 ☆☆☆ [Per Se](https://www.instagram.com/p/C4Vv1CGRZxQ/?hl=en)
@@ -139,13 +159,19 @@
 
 ☆☆ [Daniel](https://www.instagram.com/p/C07kBUCh42e/?hl=en)
 
+☆☆ [Gabriel Kreuther](https://www.instagram.com/p/C4bL7VoPGUi/?hl=en)
+
 ☆☆ [Momofuku Ko](https://www.instagram.com/p/C0qrOhtONWo/?hl=en)
 
 ☆☆ [Odo](https://www.instagram.com/p/C0dgzOBOGB4/?hl=en)
 
+☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C4bEB8qRn3W/?hl=en)
+
 ☆☆ [The Modern](https://www.instagram.com/p/C0qzy5hOWOf/?hl=en)
 
 ☆☆ [Uchu by Ichimura](https://www.instagram.com/p/C0djWG4uxMh/?hl=en)
+
+☆ [Ai Fiori](https://www.instagram.com/p/C4daKbFLZKJ/?hl=en)
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
 
@@ -173,6 +199,10 @@
 
 ☆ [Sushi Yasuda](https://www.instagram.com/p/C2ZbcgGuvjR/?hl=en)
 
+☆ [Tempura Matsui](https://www.instagram.com/p/C4aig60rlZU/?hl=en)
+
+☆ [Tori Shin](https://www.instagram.com/p/C4bIuqHvW0g/?hl=en)
+
 ☆ [Torrisi](https://www.instagram.com/p/C_KSIoNRgXV/?hl=en)
 
 ☆ [Tsukimi](https://www.instagram.com/p/C0v4yhhrZdO/?hl=en)
@@ -196,6 +226,8 @@
 
 # Florida
 ☆ [Capa](https://www.instagram.com/p/C0q3UszLXhn/?hl=en)
+
+☆ [Knife & Spoon](https://www.instagram.com/p/C4aiT15rh3u/?hl=en)
 
 ☆ [Stubborn Seed](https://www.instagram.com/p/C4TRHPVxgzX/?hl=en)
 
