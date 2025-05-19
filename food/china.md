@@ -77,6 +77,8 @@
 # Guangzhou
 ☆ [Jade River](https://www.instagram.com/p/C0lcqCruMBd/?hl=en)
 
+☆ [Wisca](https://www.instagram.com/p/C01q9tlOnfz/?hl=en)
+
 # Hangzhou
 ☆ [Jin Sha](https://www.instagram.com/p/C0vbB0WLPRM/?hl=en)
 
@@ -91,6 +93,8 @@
 
 # Macau
 ☆☆☆ [Jade Dragon](https://www.instagram.com/p/C0iCr9-xy37/?hl=en)
+
+☆☆☆ [Robuchon au Dôme](https://www.instagram.com/p/C01zNNbrMxJ/?hl=en)
 
 # Taipei
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
