@@ -41,7 +41,7 @@
 
 ☆☆ [HOMMAGE](https://www.instagram.com/p/C4TR7CxRcX9/?hl=en)
 
-☆☆ Japanese Cuisine Seizan
+☆☆ [Japanese Cuisine Seizan](https://www.instagram.com/p/DCoHBf8Rf1I/?hl=en)
 
 ☆☆ [Kobikicho Tomoki](https://www.instagram.com/p/C01xj2XLOhA/?hl=en)
 
