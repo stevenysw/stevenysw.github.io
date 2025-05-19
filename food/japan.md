@@ -7,6 +7,8 @@
 
 ☆☆☆ [Kanda](https://www.instagram.com/p/C0qrnwBufEU/?hl=en)
 
+☆☆☆ [Kohaku](https://www.instagram.com/p/DET_HULxOz5/?hl=en)
+
 ☆☆☆ [L'Effervescence](https://www.instagram.com/p/C4YelwNvDr8/?hl=en)
 
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
@@ -25,6 +27,8 @@
 
 ☆☆ [Den](https://www.instagram.com/p/DG_isXjyVta/?hl=en)
 
+☆☆ [Esquisse](https://www.instagram.com/p/DCsCkJ7ym5h/?hl=en)
+
 ☆☆ [Florilège](https://www.instagram.com/p/C0gNMFOO9FE/?hl=en)
 
 ☆☆ [Ginza Korju](https://www.instagram.com/p/C0dj4mNuVD6/?hl=en)
@@ -38,6 +42,8 @@
 ☆☆ [Kutan](https://www.instagram.com/p/C05GuA3Pbog/?hl=en)
 
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
+
+☆☆ [Myojaku](https://www.instagram.com/p/DET9VxYRubB/?hl=en)
 
 ☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/C0gRZzxuuEO/?hl=en)
 
