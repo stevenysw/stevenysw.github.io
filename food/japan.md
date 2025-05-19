@@ -164,6 +164,8 @@
 
 ☆ [Sushi Sanshin](https://www.instagram.com/p/C4NqxZvruCv/?hl=en)
 
+☆ [Tom Curiosa](https://www.instagram.com/p/DHI0FGjR8_c/?igsh=NTc4MTIwNjQ2YQ==)
+
 ☆ [Torisho Ishii](https://www.instagram.com/p/C0v5fBGLNlP/?hl=en)
 
 # Kyoto
@@ -173,7 +175,7 @@
 
 ☆☆ [Ogata](https://www.instagram.com/p/C0kEMD-P3-Y/?hl=en)
 
-☆ Torisaki
+☆ [Torisaki](https://www.instagram.com/p/DJ03IdSR-Jc/)
 
 ☆ [Unagi Hirokawa](https://www.instagram.com/p/C0quTjMOA-a/?hl=en)
 
@@ -181,7 +183,7 @@
 ☆☆ [akordu](https://www.instagram.com/p/DBdqxgTvZhk/?hl=en)
 
 # Hyogo
-☆☆☆ Ca Sento
+☆☆☆ [Ca Sento](https://www.instagram.com/p/DJ07MEaRtPO/)
 
 ☆ [bb9](https://www.instagram.com/p/C0oykg2rDeo/?hl=en)
 
@@ -209,10 +211,10 @@
 
 ☆☆ [Oryouri Fujii](https://www.instagram.com/p/C4AVlF3OVLI/?hl=en)
 
-☆ Sushi Jin
+☆ [Sushi Jin](https://www.instagram.com/p/DITjmAQpq1J/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Fukui
-☆☆ Sushi Jubei
+☆☆ [Sushi Jubei](https://www.instagram.com/p/C37ooCtrOYo/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Hiroshima
 ☆ [Chisou Sottakuito](https://www.instagram.com/p/DHIy_rPRqsm/?hl=en)
@@ -248,7 +250,7 @@
 # Kumamoto
 ☆ [Sushi Senpachi](https://www.instagram.com/p/C0u1bAlP4_6/?hl=en)
 
-☆ Yoshoku no Mise Hashimoto
+☆ [Yoshoku no Mise Hashimoto](https://www.instagram.com/p/DJ07Zrhxr__/)
 
 # Nagasaki
 ☆ [pesceco](https://www.instagram.com/p/DCmMJTOvLvq/?hl=en)
