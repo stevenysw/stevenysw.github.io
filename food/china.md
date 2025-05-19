@@ -31,7 +31,7 @@
 
 ☆ [Il Ristorante - Niko Romito]()
 
-☆ [Jean Georges]()
+☆ [Jean Georges](https://www.instagram.com/p/C4Yakg1JOda/?hl=en)
 
 ☆ Kanpai Classic
 
@@ -57,7 +57,7 @@
 
 ☆ [Phenix]()
 
-☆ [Ren He Guan]()
+☆ [Ren He Guan](https://www.instagram.com/p/C4X6vrpR7nw/?hl=en)
 
 ☆ [Seventh Son]()
 
@@ -72,6 +72,8 @@
 ☆ [Wu You Xian](https://www.instagram.com/p/DAgOCGbSnqs/?hl=en)
 
 # Beijing
+☆ [Jing Yaa Tang](https://www.instagram.com/p/C4YaCrmpSo6/?hl=en)
+
 ☆ [Mio](https://www.instagram.com/p/C0lYc5buBue/?hl=en)
 
 # Guangzhou
