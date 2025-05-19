@@ -7,6 +7,8 @@
 
 ☆☆☆ [Kanda](https://www.instagram.com/p/C0qrnwBufEU/?hl=en)
 
+☆☆☆ [L'Effervescence](https://www.instagram.com/p/C4YelwNvDr8/?hl=en)
+
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
 ☆☆☆ [Nihonryori Ryugin](https://www.instagram.com/p/C0v162HOc_G/?hl=en)
@@ -65,6 +67,8 @@
 
 ☆ [Mikawa Zezankyo](https://www.instagram.com/p/C0uzGqKPJbU/?hl=en)
 
+☆ [Nishiazabu Sushi Shin](https://www.instagram.com/p/C4aeufyrqLJ/?hl=en)
+
 ☆ [Obana](https://www.instagram.com/p/C0z0vQRPNgW/?hl=en)
 
 ☆ [Soba House Konjiki-Hototogisu](https://www.instagram.com/p/C0qrY1xuAfj/?hl=en)
@@ -86,6 +90,8 @@
 ☆ [Tamawarai](https://www.instagram.com/p/C2w0CiHr7-Y/?hl=en)
 
 ☆ [Tempura Miyashiro](https://www.instagram.com/p/C4V62Atx0DT/?hl=en)
+
+☆ [Tempura Shimomura](https://www.instagram.com/p/C4YcE7svMyT/?hl=en)
 
 ☆ [Ten Yokota](https://www.instagram.com/p/C1XL3cMOVvd/?hl=en)
 
@@ -174,6 +180,8 @@
 
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
+☆ [Sola](https://www.instagram.com/p/C4Yb3UEPOSj/?hl=en)
+
 ☆ [Tenzushi Kyomachi](https://www.instagram.com/p/C0o1VkqLAD4/?hl=en)
 
 ☆ [TTHOAHISU](https://www.instagram.com/p/C2ZaVhSu-DD/?hl=en)
@@ -188,6 +196,8 @@
 ☆☆☆ [Hanakoji Sawada](https://www.instagram.com/p/C0tScHrLad6/?hl=en)
 
 ☆☆☆ [Moliere](https://www.instagram.com/p/C0vz89Xu_3q/?hl=en)
+
+☆☆ [Michel Bras Toya Japon](https://www.instagram.com/p/C4YcWd1PSKK/?hl=en)
 
 ☆☆ [Sushisai Wakichi](https://www.instagram.com/p/C0-PG4OvazS/?hl=en)
 
