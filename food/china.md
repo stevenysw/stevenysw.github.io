@@ -27,7 +27,7 @@
 
 ☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
 
-☆ Gastro Esthetics at DaDong
+☆ [Gastro Esthetics at DaDong](https://www.instagram.com/p/C4eGYYfS2ge/?hl=en)
 
 ☆ [Il Ristorante - Niko Romito](https://www.instagram.com/p/C4bEw-ARXJz/?hl=en)
 
@@ -35,7 +35,7 @@
 
 ☆ [Kanpai Classic](https://www.instagram.com/p/C4bLu4zvZub/?hl=en)
 
-☆ Lao Zheng Xing
+☆ [Lao Zheng Xing](https://www.instagram.com/p/C4iJjYKrMb4/?hl=en)
 
 ☆ Le Comptoir de Pierre Gagnaire
 
@@ -43,7 +43,7 @@
 
 ☆ [Ling Long](https://www.instagram.com/p/DBawSo5RKkv/?hl=en)
 
-☆ Madam Goose
+☆ [Madam Goose](https://www.instagram.com/p/C4gM_tYR6Gq/?hl=en)
 
 ☆ [Maison Lameloise](https://www.instagram.com/p/C0lc_2zum8A/?hl=en)
 
@@ -59,7 +59,7 @@
 
 ☆ [Ren He Guan](https://www.instagram.com/p/C4X6vrpR7nw/?hl=en)
 
-☆ Seventh Son
+☆ [Seventh Son](https://www.instagram.com/p/C4i6rLMP_7s/?hl=en)
 
 ☆ [T'ang Court](https://www.instagram.com/p/DAfiVwrSNxF/?hl=en)
 
@@ -77,6 +77,8 @@
 ☆ [Mio](https://www.instagram.com/p/C0lYc5buBue/?hl=en)
 
 ☆ [Poetry‧Wine](https://www.instagram.com/p/C4bGHcIJ-Y4/?hl=en)
+
+☆ [The Beijing Kitchen](https://www.instagram.com/p/C4eGjNtS50n/?hl=en)
 
 # Guangzhou
 ☆ [BingSheng Mansion](https://www.instagram.com/p/C4YcvOSPyy2/?hl=en)
@@ -102,6 +104,10 @@
 ☆ [He Hung Kee](https://www.instagram.com/p/C4bI9pYPCBe/?hl=en)
 
 ☆ [Kam's Roast Goose](https://www.instagram.com/p/C2zevGIr6sX/?hl=en)
+
+☆ [Seventh Son](https://www.instagram.com/p/C4gG34nxpSm/?hl=en)
+
+☆ [Yardbird](https://www.instagram.com/p/C4iDJhqrNZL/?hl=en)
 
 ☆ [Yat Lok](https://www.instagram.com/p/C4TPJVlxCW2/?hl=en)
 
