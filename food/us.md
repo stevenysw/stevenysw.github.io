@@ -35,6 +35,8 @@
 
 ☆ [715 Sushi](https://www.instagram.com/p/C4TQYPExz83/?hl=en)
 
+☆ [ADEGA](https://www.instagram.com/p/C4kw04crZI_/?hl=en)
+
 ☆ [Angler](https://www.instagram.com/p/C4gLOgcxCcZ/?hl=en)
 
 ☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
@@ -79,7 +81,11 @@
 
 ☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
 
+☆ [Mourad](https://www.instagram.com/p/C4lkEkUPy4b/?hl=en)
+
 ☆ [Nari](https://www.instagram.com/p/C01qBK6O0PA/?hl=en)
+
+☆ [Niku Steakhouse](https://www.instagram.com/p/C4lk2jovGcp/?hl=en)
 
 ☆ [Nisei](https://www.instagram.com/p/C4iJBwdL3x-/?hl=en)
 
@@ -112,6 +118,8 @@
 ☆ [The Shota](https://www.instagram.com/p/C00EBqGs9jS/?hl=en)
 
 ☆ [The Village Pub](https://www.instagram.com/p/C4ksDudrZA9/?hl=en)
+
+☆ [Wako](https://www.instagram.com/p/C4lmg00vQzB/?hl=en)
 
 ☆ [Wakuriya](https://www.instagram.com/p/C0gXnm2OQod/?hl=en)
 
@@ -155,6 +163,8 @@
 ☆ [Maude](https://www.instagram.com/p/C4iHZ-9rPOV/?hl=en)
 
 ☆ [Meteora](https://www.instagram.com/p/DE0ywebye56/?hl=en)
+
+☆ [Morihiro](https://www.instagram.com/p/C4lkdE5PJ1a/?hl=en)
 
 ☆ [Mori Sushi](https://www.instagram.com/p/C4eECIkSW_L/?hl=en)
 
@@ -280,6 +290,8 @@
 ☆ [Tsukimi](https://www.instagram.com/p/C0v4yhhrZdO/?hl=en)
 
 ☆ [Uncle Boons](https://www.instagram.com/p/C4kuldPrZqV/?hl=en)
+
+☆ [Ushikawamaru](https://www.instagram.com/p/C4lj37NP81y/?hl=en)
 
 ☆ [Yoshino](https://www.instagram.com/p/C0laFqwuFjg/?hl=en)
 
