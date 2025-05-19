@@ -55,7 +55,7 @@
 
 ☆ [Oriental Sense & Palate](https://www.instagram.com/p/DB07rVax2AK/?hl=en)
 
-☆ [Phenix]()
+☆ [Phénix](https://www.instagram.com/p/C4YdVDhP_6B/?hl=en)
 
 ☆ [Ren He Guan](https://www.instagram.com/p/C4X6vrpR7nw/?hl=en)
 
@@ -77,6 +77,8 @@
 ☆ [Mio](https://www.instagram.com/p/C0lYc5buBue/?hl=en)
 
 # Guangzhou
+☆ [BingSheng Mansion](https://www.instagram.com/p/C4YcvOSPyy2/?hl=en)
+
 ☆ [Jade River](https://www.instagram.com/p/C0lcqCruMBd/?hl=en)
 
 ☆ [Wisca](https://www.instagram.com/p/C01q9tlOnfz/?hl=en)
@@ -85,6 +87,8 @@
 ☆ [Jin Sha](https://www.instagram.com/p/C0vbB0WLPRM/?hl=en)
 
 # Hong Kong
+☆☆☆ [Caprice](https://www.instagram.com/p/C4Yd0Q9vu7C/?hl=en)
+
 ☆☆☆ [Forum Restaurant](https://www.instagram.com/p/C0o1Db9LGS5/?hl=en)
 
 ☆☆☆ [Lung King Heen](https://www.instagram.com/p/C0qu2sku1r4/?hl=en)
@@ -103,6 +107,8 @@
 ☆☆☆ [Robuchon au Dôme](https://www.instagram.com/p/C01zNNbrMxJ/?hl=en)
 
 ☆☆ [Alain Ducasse Morpheus](https://www.instagram.com/p/C4VWJdDrxs2/?hl=en)
+
+☆ [The Kitchen](https://www.instagram.com/p/C4Yc9QRv0Pp/?hl=en)
 
 # Taipei
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
