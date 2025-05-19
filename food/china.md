@@ -47,7 +47,7 @@
 
 ☆ [Maison Lameloise](https://www.instagram.com/p/C0lc_2zum8A/?hl=en)
 
-☆ [Meet the Bund]()
+☆ [Meet the Bund](https://www.instagram.com/p/C1cWPr4usCp/?hl=en)
 
 ☆ Moose
 
@@ -63,7 +63,7 @@
 
 ☆ [T'ang Court](https://www.instagram.com/p/DAfiVwrSNxF/?hl=en)
 
-☆ [Tou Zao]
+☆ [Tou Zao](https://www.instagram.com/p/C14VF2trX3d/?hl=en)
 
 ☆ [Xin Rong Ji]
 
