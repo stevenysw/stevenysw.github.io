@@ -21,6 +21,10 @@
 
 ☆☆ [Ginza Shinohara](https://www.instagram.com/p/C0yL18uukXl/?hl=en)
 
+☆☆ [Kobikicho Tomoki](https://www.instagram.com/p/C01xj2XLOhA/?hl=en)
+
+☆☆ [Kutan](https://www.instagram.com/p/C05GuA3Pbog/?hl=en)
+
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
 
 ☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/C0gRZzxuuEO/?hl=en)
@@ -34,6 +38,8 @@
 ☆☆ [Tempura Kondo](https://www.instagram.com/p/C0lX3ZzOf21/?hl=en)
 
 ☆☆ [ZURRIOLA](https://www.instagram.com/p/C0deAIBurTS/?hl=en)
+
+☆ [Asagaya Birdland](https://www.instagram.com/p/C01qpA5OJj6/?hl=en)
 
 ☆ [Azure 45](https://www.instagram.com/p/C0kF3QrvUZa/?hl=en)
 
@@ -57,6 +63,10 @@
 
 ☆ [Sushi Ryujiro](https://www.instagram.com/p/C0gL93HORsC/?hl=en)
 
+☆ [TACUBO](https://www.instagram.com/p/C07bylvvOgA/?hl=en)
+
+☆ [Ten Yokota](https://www.instagram.com/p/C1XL3cMOVvd/?hl=en)
+
 ☆ [Yakitori Omino](https://www.instagram.com/p/C0oy-C_rbwb/?hl=en)
 
 # Kanagawa
@@ -75,6 +85,8 @@
 ☆ [Torisho Ishii](https://www.instagram.com/p/C0v5fBGLNlP/?hl=en)
 
 # Kyoto
+☆☆☆ [Hyotei](https://www.instagram.com/p/C01ygPurX2c/?hl=en)
+
 ☆☆☆ [Kikunoi Honten](https://www.instagram.com/p/C0vejqQLra0/?hl=en)
 
 ☆☆ [Ogata](https://www.instagram.com/p/C0kEMD-P3-Y/?hl=en)
@@ -108,6 +120,8 @@
 
 ☆ [Tenzushi Kyomachi](https://www.instagram.com/p/C0o1VkqLAD4/?hl=en)
 
+☆ [TTHOAHISU](https://www.instagram.com/p/C2ZaVhSu-DD/?hl=en)
+
 # Kumamoto
 ☆ [Sushi Senpachi](https://www.instagram.com/p/C0u1bAlP4_6/?hl=en)
 
@@ -119,9 +133,17 @@
 
 ☆☆☆ [Moliere](https://www.instagram.com/p/C0vz89Xu_3q/?hl=en)
 
+☆☆ [Sushisai Wakichi](https://www.instagram.com/p/C0-PG4OvazS/?hl=en)
+
 ☆☆ [Tempura Araki](https://www.instagram.com/p/C0dc3M5OO65/?hl=en)
+
+☆ [Aki Nagao](https://www.instagram.com/p/C1V4HK8ugF0/?hl=en)
+
+☆ [Out of Africa](https://www.instagram.com/p/C01ojxAu_fp/?hl=en)
 
 ☆ [Sushidokoro Minami](https://www.instagram.com/p/C0vhm2WrRgE/?hl=en)
 
 ☆ [Sushi Minato](https://www.instagram.com/p/C0lXQrmucJ3/?hl=en)
+
+☆ [Suyama](https://www.instagram.com/p/C1hOzVROi1R/?hl=en)
 
