@@ -37,7 +37,7 @@
 
 ☆ [Lao Zheng Xing]()
 
-☆ [Le Comptoir de Pierre Gagnaire]()
+☆ [Le Comptoir de Pierre Gagnaire](https://www.instagram.com/p/C4bEw-ARXJz/?hl=en)
 
 ☆ [Lei Garden]()
 
@@ -65,7 +65,7 @@
 
 ☆ [Tou Zao](https://www.instagram.com/p/C14VF2trX3d/?hl=en)
 
-☆ [Xin Rong Ji]
+☆ [Xin Rong Ji](https://www.instagram.com/p/C4afF8sLKwr/?hl=en)
 
 ☆ [Yong Fu](https://www.instagram.com/p/DBwAz4UR7il/?hl=en)
 
@@ -75,6 +75,8 @@
 ☆ [Jing Yaa Tang](https://www.instagram.com/p/C4YaCrmpSo6/?hl=en)
 
 ☆ [Mio](https://www.instagram.com/p/C0lYc5buBue/?hl=en)
+
+☆ [Poetry‧Wine](https://www.instagram.com/p/C4bGHcIJ-Y4/?hl=en)
 
 # Guangzhou
 ☆ [BingSheng Mansion](https://www.instagram.com/p/C4YcvOSPyy2/?hl=en)
@@ -96,6 +98,8 @@
 ☆☆☆ [Sushi Shikon](https://www.instagram.com/p/C0vxJQfO5YS/?hl=en)
 
 ☆☆☆ [Ta Vie](https://www.instagram.com/p/C0o3I_TLB-M/?hl=en)
+
+☆ [He Hung Kee](https://www.instagram.com/p/C4bI9pYPCBe/?hl=en)
 
 ☆ [Kam's Roast Goose](https://www.instagram.com/p/C2zevGIr6sX/?hl=en)
 
