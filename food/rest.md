@@ -1,6 +1,8 @@
 # Australia
 ☆☆☆ [Quay](https://www.instagram.com/p/C43wERBSe1P/?hl=en)
 
+☆☆ [Gimlet at Cavendish House](https://www.instagram.com/p/C5k-fbHLoXK/?igsh=NTc4MTIwNjQ2YQ==)
+
 ☆☆ [IDES](https://www.instagram.com/p/C5iXbqRy2Ef/?hl=en)
 
 ☆ [Rick Shores](https://www.instagram.com/p/C5GCarQy0tq/?hl=en)
@@ -23,6 +25,8 @@
 
 # New Zealand
 ☆☆ [Sherwood](https://www.instagram.com/p/C5QWL8GyDtz/?igsh=NTc4MTIwNjQ2YQ==)
+
+☆ [Jervois Steak House](https://www.instagram.com/p/C5cGa6SP_6X/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Singapore
 ☆☆☆ [Les Amis](https://www.instagram.com/p/C0dlk_LOV5v/?hl=en)
