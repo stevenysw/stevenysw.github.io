@@ -1,4 +1,7 @@
 # Canada
+☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
+
+☆ [Burdock & Co](https://www.instagram.com/p/C4iIgPCLQiU/?hl=en)
 
 # Mexico
 ☆☆ [Pujol](https://www.instagram.com/p/C0ddiLSuzOq/?hl=en)
@@ -6,6 +9,8 @@
 ☆☆ [Quintonil](https://www.instagram.com/p/C0db8wEOMqo/?hl=en)
 
 ☆ [Rosetta](https://www.instagram.com/p/C0h18xaPCpr/?hl=en)
+
+☆ [Sud 777](https://www.instagram.com/p/C4eHiBMPXFs/?hl=en)
 
 # Singapore
 ☆☆☆ [Les Amis](https://www.instagram.com/p/C0dlk_LOV5v/?hl=en)
