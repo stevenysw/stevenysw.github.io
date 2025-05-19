@@ -45,6 +45,8 @@
 
 ☆☆ [SANT PAU](https://www.instagram.com/p/C0dfQ52ubjQ/?hl=en)
 
+☆☆ [Sawada](https://www.instagram.com/p/C4bGTT4vJCj/?hl=en)
+
 ☆☆ [Sukiyabashi Jiro Roppongi Hills](https://www.instagram.com/p/C0lbgZSOZEz/?hl=en)
 
 ☆☆ [Tempura Kondo](https://www.instagram.com/p/C0lX3ZzOf21/?hl=en)
@@ -67,7 +69,11 @@
 
 ☆ [Mikawa Zezankyo](https://www.instagram.com/p/C0uzGqKPJbU/?hl=en)
 
+☆ [Miyasaka](https://www.instagram.com/p/C4ahQXmrQEB/?hl=en)
+
 ☆ [Nishiazabu Sushi Shin](https://www.instagram.com/p/C4aeufyrqLJ/?hl=en)
+
+☆ [Nodaiwa Azabu Iikura Honten](https://www.instagram.com/p/C4dF_kRLxBb/?hl=en)
 
 ☆ [Obana](https://www.instagram.com/p/C0z0vQRPNgW/?hl=en)
 
@@ -111,6 +117,8 @@
 
 # Miyagi
 ☆ [Nacree](https://www.instagram.com/p/C4X8Artx3wm/?hl=en)
+
+☆ [Nihonryori e.](https://www.instagram.com/p/C4bHOWRPoBW/?hl=en)
 
 # Niigata
 ☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
@@ -180,6 +188,8 @@
 
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
+☆ [Raisin d'Or](https://www.instagram.com/p/C4bGr7Cv6ds/?hl=en)
+
 ☆ [Sola](https://www.instagram.com/p/C4Yb3UEPOSj/?hl=en)
 
 ☆ [Tenzushi Kyomachi](https://www.instagram.com/p/C0o1VkqLAD4/?hl=en)
@@ -204,6 +214,8 @@
 ☆☆ [Tempura Araki](https://www.instagram.com/p/C0dc3M5OO65/?hl=en)
 
 ☆ [Aki Nagao](https://www.instagram.com/p/C1V4HK8ugF0/?hl=en)
+
+☆ [ASPERGES](https://www.instagram.com/p/C4ahYQcLbv6/?hl=en)
 
 ☆ [Out of Africa](https://www.instagram.com/p/C01ojxAu_fp/?hl=en)
 
