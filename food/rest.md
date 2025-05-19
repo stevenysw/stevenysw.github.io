@@ -1,3 +1,6 @@
+# Australia
+☆☆☆ [Quay](https://www.instagram.com/p/C43wERBSe1P/?hl=en)
+
 # Canada
 ☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
 
@@ -49,3 +52,5 @@
 
 # United Arab Emirates
 ☆☆ [Il Ristorante - Niko Romito](https://www.instagram.com/p/C0hsGCLxjF1/?hl=en)
+
+☆ [Hakkasan](https://www.instagram.com/p/C4qE2iuLyv2/?hl=en)
