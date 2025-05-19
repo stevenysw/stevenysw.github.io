@@ -269,6 +269,8 @@
 
 ☆☆ [Sushisai Wakichi](https://www.instagram.com/p/C0-PG4OvazS/?hl=en)
 
+☆☆ [Suyama](https://www.instagram.com/p/C1hOzVROi1R/?hl=en)
+
 ☆☆ [Tempura Araki](https://www.instagram.com/p/C0dc3M5OO65/?hl=en)
 
 ☆ [Aki Nagao](https://www.instagram.com/p/C1V4HK8ugF0/?hl=en)
@@ -282,8 +284,6 @@
 ☆ [Sushidokoro Minami](https://www.instagram.com/p/C0vhm2WrRgE/?hl=en)
 
 ☆ [Sushi Minato](https://www.instagram.com/p/C0lXQrmucJ3/?hl=en)
-
-☆ [Suyama](https://www.instagram.com/p/C1hOzVROi1R/?hl=en)
 
 ☆ [Unagi Kadowaki](https://www.instagram.com/p/C4gOV24xiKS/?hl=en)
 
