@@ -66,6 +66,8 @@
 # Greece
 ☆☆ [Spondi](https://www.instagram.com/p/C0diCM3u6Xl/?hl=en)
 
+☆ [Hytra](https://www.instagram.com/p/C4X8lVJRe4a/?hl=en)
+
 # Hungary
 ☆ [Essência](https://www.instagram.com/p/C0qslg2uP7h/?hl=en)
 
@@ -109,6 +111,8 @@
 ☆☆☆ [Akelaŕe](https://www.instagram.com/p/C0gOSwbuifJ/?hl=en)
 
 ☆☆☆ [Arzak](https://www.instagram.com/p/C0dmGxGum1M/?hl=en)
+
+☆☆☆ [Azurmendi](https://www.instagram.com/p/C4V6bCXRXBD/?hl=en)
 
 ☆☆☆ [Cocina Hermanos Torres](https://www.instagram.com/p/C0jHIV2ryhY/?hl=en)
 
