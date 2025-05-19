@@ -59,6 +59,8 @@
 
 ☆ [BIRD LAND](https://www.instagram.com/p/C0da0EjulIX/?hl=en)
 
+☆ [Chukasoba Ginza Hachigou](https://www.instagram.com/p/C4lnF1MvdfY/?hl=en)
+
 ☆ [Edomae Shinsaku](https://www.instagram.com/p/C2wcdvtOICO/?hl=en)
 
 ☆ [Imafuku](https://www.instagram.com/p/C4Ybml0P-Je/?hl=en)
@@ -195,6 +197,8 @@
 ☆☆ [Imoto](https://www.instagram.com/p/C4XV68OOMmI/?hl=en)
 
 ☆ [Fujii Unagi](https://www.instagram.com/p/C4eCK_oyssF/?hl=en)
+
+☆ [Kiku Zushi](https://www.instagram.com/p/DCsAeHsSNIQ/?hl=en)
 
 ☆ [Oryori Matsuyama](https://www.instagram.com/p/DCmLHTtP1FN/?hl=en)
 
