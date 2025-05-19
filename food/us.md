@@ -35,6 +35,8 @@
 
 ☆ [715 Sushi](https://www.instagram.com/p/C4TQYPExz83/?hl=en)
 
+☆ [Angler](https://www.instagram.com/p/C4gLOgcxCcZ/?hl=en)
+
 ☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
 
 ☆ [Avery](https://www.instagram.com/p/C2ZZzIHOScW/?hl=en)
@@ -43,7 +45,11 @@
 
 ☆ [Barndiva](https://www.instagram.com/p/C4bHwtrvmaS/?hl=en)
 
-☆ [[Cyrus](https://www.instagram.com/p/C4bIdHhvl0X/?hl=en)
+☆ [Bouchon](https://www.instagram.com/p/C4gOK3lRjGT/?hl=en)
+
+☆ [Chez TJ](https://www.instagram.com/p/C4iGkjGrJiH/?hl=en)
+
+☆ [Cyrus](https://www.instagram.com/p/C4bIdHhvl0X/?hl=en)
 
 ☆ [Gary Danko](https://www.instagram.com/p/C0de8xsOpxF/?hl=en)
 
@@ -51,25 +57,41 @@
 
 ☆ [Hilda and Jesse](https://www.instagram.com/p/C-4cHO4RuVu/?hl=en)
 
+☆ [In Situ](https://www.instagram.com/p/C4eCCl6y9KH/?hl=en)
+
 ☆ [jū-ni](https://www.instagram.com/p/C0kD6wdvTsA/?hl=en)
 
 ☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
 
 ☆ [Keiko Nob Hill](https://www.instagram.com/p/C00FDnjM6al/?hl=en)
 
+☆ [Kenzo](https://www.instagram.com/p/C4iBFUHLAzz/?hl=en)
+
 ☆ [Kiln](https://www.instagram.com/p/C_pXQiHxpzg/?hl=en)
 
 ☆ [Luce](https://www.instagram.com/p/C0u_cwLpO3R/?hl=en)
+
+☆ [Madcap](https://www.instagram.com/p/C4iF3FjrVCI/?hl=en)
 
 ☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
 
 ☆ [Nari](https://www.instagram.com/p/C01qBK6O0PA/?hl=en)
 
+☆ [Nisei](https://www.instagram.com/p/C4iJBwdL3x-/?hl=en)
+
+☆ [O' by Claude Le Tohic](https://www.instagram.com/p/C4iEuvSrcCc/?hl=en)
+
 ☆ [Omakase](https://www.instagram.com/p/C4bKuJrPVgp/?hl=en)
 
 ☆ [Protégé](https://www.instagram.com/p/C2ZaL3LOKtA/?hl=en)
 
+☆ [San Ho Won](https://www.instagram.com/p/C4i4sZMv-A0/?hl=en)
+
+☆ [Selby's](https://www.instagram.com/p/C4iG1R0L44c/?hl=en)
+
 ☆ [Sorrel](https://www.instagram.com/p/C0ihZNYOO91/?hl=en)
+
+☆ [SPQR](https://www.instagram.com/p/C4iBe1QLa0_/?hl=en)
 
 ☆ [SSAL](https://www.instagram.com/p/C0vtfEMu1xh/?hl=en)
 
@@ -100,19 +122,31 @@
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
 
+☆ [CUT by Wolfgang Puck](https://www.instagram.com/p/C4i4TAePW92/?hl=en)
+
 ☆ [Dialogue](https://www.instagram.com/p/C4YeaQIPu5z/?hl=en)
 
 ☆ [Gucci Osteria da Massimo Bottura](https://www.instagram.com/p/C4X7zJ3RqiO/?hl=en)
+
+☆ [Gwen](https://www.instagram.com/p/C4jbexfvBgA/?hl=en)
+
+☆ [Hana Re](https://www.instagram.com/p/C4iHriKrw_1/?hl=en)
 
 ☆ [Heritage](https://www.instagram.com/p/C01nsWYOXAT/?hl=en)
 
 ☆ [Holbox](https://www.instagram.com/p/C0vzHxFO1GM/?hl=en)
 
+☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
+
 ☆ [Manzke](https://www.instagram.com/p/C0v095dOihy/?hl=en)
+
+☆ [Maude](https://www.instagram.com/p/C4iHZ-9rPOV/?hl=en)
 
 ☆ [Meteora](https://www.instagram.com/p/DE0ywebye56/?hl=en)
 
-☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
+☆ [Mori Sushi](https://www.instagram.com/p/C4eECIkSW_L/?hl=en)
+
+☆ [Nozawa Bar](https://www.instagram.com/p/C4gLeTaRu4Y/?hl=en)
 
 ☆ [Orsa & Winston](https://www.instagram.com/p/C0yOtxjOP8n/?hl=en)
 
@@ -122,11 +156,19 @@
 
 ☆ [Q Sushi](https://www.instagram.com/p/C0qusVhOBqE/?hl=en)
 
+☆ [Shibumi](https://www.instagram.com/p/C4iEOV3LBwD/?hl=en)
+
+☆ [Shin Sushi](https://www.instagram.com/p/C4i4fMhv-sb/?hl=en)
+
+☆ [Shunji](https://www.instagram.com/p/C4eBrlrSTRV/?hl=en)
+
 ☆ [Sushi Inaba](https://www.instagram.com/p/C4TTg5lRVQl/?hl=en)
 
 ☆ [Sushi Kaneyoshi](https://www.instagram.com/p/C0v3yA2LoMY/?hl=en)
 
 ☆ [Sushi Tadokoro](https://www.instagram.com/p/C4YbVqyPBLP/?hl=en)
+
+☆ [Taco Maria](https://www.instagram.com/p/C4gHufPxZVV/?hl=en)
 
 ☆ [Valle](https://www.instagram.com/p/C0tQdcfObRf/?hl=en)
 
@@ -161,9 +203,13 @@
 
 ☆☆ [Gabriel Kreuther](https://www.instagram.com/p/C4bL7VoPGUi/?hl=en)
 
+☆☆ [Marea](https://www.instagram.com/p/C4eDI2USvFa/?hl=en)
+
 ☆☆ [Momofuku Ko](https://www.instagram.com/p/C0qrOhtONWo/?hl=en)
 
 ☆☆ [Odo](https://www.instagram.com/p/C0dgzOBOGB4/?hl=en)
+
+☆☆ [Saga](https://www.instagram.com/p/C4eGu_ASda7/?hl=en)
 
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C4bEB8qRn3W/?hl=en)
 
@@ -175,6 +221,8 @@
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
 
+☆ [Casa Mono](https://www.instagram.com/p/C4jbRs_vc_O/?hl=en)
+
 ☆ [Cote](https://www.instagram.com/p/C0-PUI6Prci/?hl=en)
 
 ☆ [Essential by Christophe](https://www.instagram.com/p/C4Ya110pCf7/?hl=en)
@@ -182,6 +230,8 @@
 ☆ [Estela](https://www.instagram.com/p/C0v3hBJLw25/?hl=en)
 
 ☆ [Jeju Noodle Bar](https://www.instagram.com/p/C0v4ZA5LeAB/?hl=en)
+
+☆ [Junoon](https://www.instagram.com/p/C4iAx9OrfAZ/?hl=en)
 
 ☆ [Kajitsu](https://www.instagram.com/p/C2ZbR6ZO-_p/?hl=en)
 
@@ -191,15 +241,23 @@
 
 ☆ [KyoYa](https://www.instagram.com/p/C4V36hJRVjK/?hl=en)
 
+☆ [Oxomoco](https://www.instagram.com/p/C4gMTb4xcEN/?hl=en)
+
 ☆ [Peter Luger Steak House](https://www.instagram.com/p/C4YdktsvPCd/?hl=en)
 
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
+☆ [Rezdôra](https://www.instagram.com/p/C4i5PjzPimD/?hl=en)
+
 ☆ [Shmone](https://www.instagram.com/p/C76bNORx6RK/?hl=en)
+
+☆ [Sushi Nakazawa](https://www.instagram.com/p/C4gHgdsx6aj/?hl=en)
 
 ☆ [Sushi Yasuda](https://www.instagram.com/p/C2ZbcgGuvjR/?hl=en)
 
 ☆ [Tempura Matsui](https://www.instagram.com/p/C4aig60rlZU/?hl=en)
+
+☆ [Torien](https://www.instagram.com/p/C4eEtNMyT3k/?hl=en)
 
 ☆ [Tori Shin](https://www.instagram.com/p/C4bIuqHvW0g/?hl=en)
 
