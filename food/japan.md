@@ -11,9 +11,13 @@
 
 ☆☆☆ [Nihonryori Ryugin](https://www.instagram.com/p/C0v162HOc_G/?hl=en)
 
+☆☆☆ [Quintessence](https://www.instagram.com/p/C4TRd6VRTQE/?hl=en)
+
 ☆☆☆ [Sazenka](https://www.instagram.com/p/C2zfSEVrjWO/?hl=en)
 
 ☆☆☆ [Sushi Saito](https://www.instagram.com/p/C_i_wjfyZ-5/?hl=en)
+
+☆☆☆ [Usuki Fugu Yamadaya](https://www.instagram.com/p/C4Vwrl0RKYz/?hl=en)
 
 ☆☆ [ASAHINA Gastronome](https://www.instagram.com/p/C_pRaFsRgWX/?hl=en)
 
@@ -24,6 +28,8 @@
 ☆☆ [Ginza Korju](https://www.instagram.com/p/C0dj4mNuVD6/?hl=en)
 
 ☆☆ [Ginza Shinohara](https://www.instagram.com/p/C0yL18uukXl/?hl=en)
+
+☆☆ [HOMMAGE](https://www.instagram.com/p/C4TR7CxRcX9/?hl=en)
 
 ☆☆ [Kobikicho Tomoki](https://www.instagram.com/p/C01xj2XLOhA/?hl=en)
 
@@ -79,6 +85,8 @@
 
 ☆ [Yakitori Omino](https://www.instagram.com/p/C0oy-C_rbwb/?hl=en)
 
+☆ [Yama](https://www.instagram.com/p/C4TG2YfLjk9/?hl=en)
+
 # Kanagawa
 ☆☆☆ [Kouan](https://www.instagram.com/p/C0h3KbsPBqG/?hl=en)
 
@@ -97,7 +105,11 @@
 
 ☆☆ [Fujiya 1935](https://www.instagram.com/p/C0gI6CuuiQ5/?hl=en)
 
+☆☆ [KAHALA](https://www.instagram.com/p/C4NuRugrrxl/?hl=en)
+
 ☆☆ [Numata](https://www.instagram.com/p/DBYe0BTJP-I/?hl=en)
+
+☆ [Sushi Sanshin](https://www.instagram.com/p/C4NqxZvruCv/?hl=en)
 
 ☆ [Torisho Ishii](https://www.instagram.com/p/C0v5fBGLNlP/?hl=en)
 
@@ -174,4 +186,6 @@
 ☆ [Sushi Minato](https://www.instagram.com/p/C0lXQrmucJ3/?hl=en)
 
 ☆ [Suyama](https://www.instagram.com/p/C1hOzVROi1R/?hl=en)
+
+☆ [Vin](https://www.instagram.com/p/C4TSlbhxXUT/?hl=en)
 
