@@ -117,7 +117,7 @@
 
 ☆ [SSAL](https://www.instagram.com/p/C0vtfEMu1xh/?hl=en)
 
-☆ State Bird Provision
+☆ [State Bird Provision](https://www.instagram.com/p/DJ09T7cxjQj/)
 
 ☆ [Sushi Shin](https://www.instagram.com/p/C0dlwd6O8sr/?hl=en)
 
@@ -150,7 +150,7 @@
 
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
-☆☆ Verspertine
+☆☆ [Verspertine](https://www.instagram.com/p/C6Ze0gLq-Xc/?igsh=NTc4MTIwNjQ2YQ==)
 
 ☆ [Bistro Na](https://www.instagram.com/p/C4dXaz-LWzl/?hl=en)
 
@@ -340,7 +340,7 @@
 
 ☆☆ [Restaurant Guy Savoy](https://www.instagram.com/p/DIWeINOJYfc/?hl=en)
 
-☆ DJT
+☆ [DJT](https://www.instagram.com/p/DJ063b5R8kU/)
 
 ☆ [Wing Lei](https://www.instagram.com/p/DC-T3A6yjAy/?hl=en)
 
