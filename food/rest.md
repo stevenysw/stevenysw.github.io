@@ -3,6 +3,8 @@
 
 ☆☆ [IDES](https://www.instagram.com/p/C5iXbqRy2Ef/?hl=en)
 
+☆ [Palette](https://www.instagram.com/p/C5E7QNuyrqn/?igsh=NTc4MTIwNjQ2YQ==)
+
 # Canada
 ☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
 
@@ -16,6 +18,9 @@
 ☆ [Rosetta](https://www.instagram.com/p/C0h18xaPCpr/?hl=en)
 
 ☆ [Sud 777](https://www.instagram.com/p/C4eHiBMPXFs/?hl=en)
+
+# New Zealand
+☆☆ [Sherwood](https://www.instagram.com/p/C5QWL8GyDtz/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Singapore
 ☆☆☆ [Les Amis](https://www.instagram.com/p/C0dlk_LOV5v/?hl=en)
