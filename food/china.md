@@ -112,6 +112,8 @@
 
 ☆☆ [Alain Ducasse Morpheus](https://www.instagram.com/p/C4VWJdDrxs2/?hl=en)
 
+☆☆ [Wing Lei](https://www.instagram.com/p/C4dZ1nfr_68/?hl=en)
+
 ☆ [The Kitchen](https://www.instagram.com/p/C4Yc9QRv0Pp/?hl=en)
 
 # Taipei
