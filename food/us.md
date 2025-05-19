@@ -73,6 +73,8 @@
 
 ☆ [Madcap](https://www.instagram.com/p/C4iF3FjrVCI/?hl=en)
 
+☆ [Michael Mina](https://www.instagram.com/p/C4kuwudL0hN/?hl=en)
+
 ☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
 
 ☆ [Nari](https://www.instagram.com/p/C01qBK6O0PA/?hl=en)
@@ -82,6 +84,8 @@
 ☆ [O' by Claude Le Tohic](https://www.instagram.com/p/C4iEuvSrcCc/?hl=en)
 
 ☆ [Omakase](https://www.instagram.com/p/C4bKuJrPVgp/?hl=en)
+
+☆ [Plumed Horse](https://www.instagram.com/p/C4jcEBQPJYc/?hl=en)
 
 ☆ [Protégé](https://www.instagram.com/p/C2ZaL3LOKtA/?hl=en)
 
@@ -101,7 +105,11 @@
 
 ☆ [The Kitchen](https://www.instagram.com/p/C-FDiz4RdhH/?hl=en)
 
+☆ [The Progress](https://www.instagram.com/p/C4krVv4LnJV/?hl=en)
+
 ☆ [The Shota](https://www.instagram.com/p/C00EBqGs9jS/?hl=en)
+
+☆ [The Village Pub](https://www.instagram.com/p/C4ksDudrZA9/?hl=en)
 
 ☆ [Wakuriya](https://www.instagram.com/p/C0gXnm2OQod/?hl=en)
 
@@ -138,6 +146,8 @@
 
 ☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
 
+☆ [Le Comptoir](https://www.instagram.com/p/C4kruvRLgXi/?hl=en)
+
 ☆ [Manzke](https://www.instagram.com/p/C0v095dOihy/?hl=en)
 
 ☆ [Maude](https://www.instagram.com/p/C4iHZ-9rPOV/?hl=en)
@@ -149,6 +159,8 @@
 ☆ [Nozawa Bar](https://www.instagram.com/p/C4gLeTaRu4Y/?hl=en)
 
 ☆ [Orsa & Winston](https://www.instagram.com/p/C0yOtxjOP8n/?hl=en)
+
+☆ [Pasjoli](https://www.instagram.com/p/C4kvNZHLecD/?hl=en)
 
 ☆ [Pasta|Bar](https://www.instagram.com/p/C1UgwWer05V/?hl=en)
 
@@ -264,6 +276,8 @@
 ☆ [Torrisi](https://www.instagram.com/p/C_KSIoNRgXV/?hl=en)
 
 ☆ [Tsukimi](https://www.instagram.com/p/C0v4yhhrZdO/?hl=en)
+
+☆ [Uncle Boons](https://www.instagram.com/p/C4kuldPrZqV/?hl=en)
 
 ☆ [Yoshino](https://www.instagram.com/p/C0laFqwuFjg/?hl=en)
 
