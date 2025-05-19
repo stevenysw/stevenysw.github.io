@@ -41,11 +41,15 @@
 
 ☆☆ [HOMMAGE](https://www.instagram.com/p/C4TR7CxRcX9/?hl=en)
 
+☆☆ Japanese Cuisine Seizan
+
 ☆☆ [Kobikicho Tomoki](https://www.instagram.com/p/C01xj2XLOhA/?hl=en)
 
 ☆☆ [Kutan](https://www.instagram.com/p/C05GuA3Pbog/?hl=en)
 
 ☆☆ [L'ATELIER de Joël Robuchon](https://www.instagram.com/p/C0dejG3ucfi/?hl=en)
+
+☆☆ [MAZ](https://www.instagram.com/p/DHIvvLJxF6q/?hl=en)
 
 ☆☆ [Myojaku](https://www.instagram.com/p/DET9VxYRubB/?hl=en)
 
@@ -139,6 +143,10 @@
 ☆ [Nihonryori e.](https://www.instagram.com/p/C4bHOWRPoBW/?hl=en)
 
 # Niigata
+☆☆ [Kyodaizushi](https://www.instagram.com/p/DHIwh3zx7sU/?hl=en)
+
+☆ [Tokiwa Sushi](https://www.instagram.com/p/DHIPb-PRgUE/?hl=en)
+
 ☆ [Osteria BACCO](https://www.instagram.com/p/DHLvnZYRxt5/?hl=en)
 
 # Osaka
@@ -165,12 +173,16 @@
 
 ☆☆ [Ogata](https://www.instagram.com/p/C0kEMD-P3-Y/?hl=en)
 
+☆ Torisaki
+
 ☆ [Unagi Hirokawa](https://www.instagram.com/p/C0quTjMOA-a/?hl=en)
 
 # Nara
 ☆☆ [akordu](https://www.instagram.com/p/DBdqxgTvZhk/?hl=en)
 
 # Hyogo
+☆☆☆ Ca Sento
+
 ☆ [bb9](https://www.instagram.com/p/C0oykg2rDeo/?hl=en)
 
 ☆ [La Maison de GRACIANI](https://www.instagram.com/p/C0vykumungL/?hl=en)
@@ -195,7 +207,16 @@
 # Toyama
 ☆☆ [L'evo](https://www.instagram.com/p/C4AWOHCOkSI/?hl=en)
 
+☆☆ Oryori Fujii
+
+☆ Sushi Jin
+
+# Fukui
+☆☆ Sushi Jubei
+
 # Hiroshima
+☆ [Chisou Sottakuito](https://www.instagram.com/p/DHIy_rPRqsm/?hl=en)
+
 ☆ [OZAWA](https://www.instagram.com/p/C4V4Gy1xS4N/?hl=en)
 
 # Tottori
@@ -226,6 +247,13 @@
 
 # Kumamoto
 ☆ [Sushi Senpachi](https://www.instagram.com/p/C0u1bAlP4_6/?hl=en)
+
+☆ Yoshoku no Mise Hashimoto
+
+# Nagasaki
+☆ pesceco
+
+☆ villa del nido
 
 # Kagawa
 ☆☆ [Kurumazushi](https://www.instagram.com/p/C0gQlKdObC9/?hl=en)
