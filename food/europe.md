@@ -87,6 +87,8 @@
 
 ☆☆☆ [La Pergola](https://www.instagram.com/p/C0dilbjOiJ4/?hl=en)
 
+☆☆☆ [Le Calandre](https://www.instagram.com/p/DJ2EW5rSiSs/?hl=en)
+
 ☆☆☆ [Osteria Francescana](https://www.instagram.com/p/C6sCW5Wqiym/?hl=en)
 
 ☆☆☆ [Piazza Duomo](https://www.instagram.com/p/C0kbYhzvKP-/?hl=en)
