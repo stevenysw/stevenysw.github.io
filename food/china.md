@@ -51,7 +51,7 @@
 
 ☆ Moose
 
-☆ [Obscura]()
+☆ [Obscura](https://www.instagram.com/p/C2VsO00SSSF/?hl=en)
 
 ☆ [Oriental Sense & Palate](https://www.instagram.com/p/DB07rVax2AK/?hl=en)
 
@@ -90,6 +90,8 @@
 ☆☆☆ [Sushi Shikon](https://www.instagram.com/p/C0vxJQfO5YS/?hl=en)
 
 ☆☆☆ [Ta Vie](https://www.instagram.com/p/C0o3I_TLB-M/?hl=en)
+
+☆ [Kam's Roast Goose](https://www.instagram.com/p/C2zevGIr6sX/?hl=en)
 
 # Macau
 ☆☆☆ [Jade Dragon](https://www.instagram.com/p/C0iCr9-xy37/?hl=en)
