@@ -3,6 +3,8 @@
 
 ☆☆☆ [Coi](https://www.instagram.com/p/C0lbyLJuPlZ/?hl=en)
 
+☆☆☆ [Quince](https://www.instagram.com/p/C01nE10O1Ub/?hl=en)
+
 ☆☆☆ [SingleThread Farm](https://www.instagram.com/p/C0z0pD8vsu6/?hl=en)
 
 ☆☆☆ [The French Laundry](https://www.instagram.com/p/C0qpnEXOdSl/?hl=en)
@@ -25,6 +27,8 @@
 
 ☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
 
+☆ [Avery](https://www.instagram.com/p/C2ZZzIHOScW/?hl=en)
+
 ☆ [Gary Danko](https://www.instagram.com/p/C0de8xsOpxF/?hl=en)
 
 ☆ [Hilda and Jesse](https://www.instagram.com/p/C-4cHO4RuVu/?hl=en)
@@ -39,11 +43,17 @@
 
 ☆ [Mister Jiu's](https://www.instagram.com/p/C8hh-6CpJHm/?hl=en)
 
+☆ [Nari](https://www.instagram.com/p/C01qBK6O0PA/?hl=en)
+
+☆ [Protégé](https://www.instagram.com/p/C2ZaL3LOKtA/?hl=en)
+
 ☆ [Sorrel](https://www.instagram.com/p/C0ihZNYOO91/?hl=en)
 
 ☆ [SSAL](https://www.instagram.com/p/C0vtfEMu1xh/?hl=en)
 
 ☆ [Sushi Shin](https://www.instagram.com/p/C0dlwd6O8sr/?hl=en)
+
+☆ [Sushi Yoshizumi](https://www.instagram.com/p/C01yMLiLJKK/?hl=en)
 
 ☆ [The Kitchen](https://www.instagram.com/p/C-FDiz4RdhH/?hl=en)
 
@@ -56,11 +66,13 @@
 
 ☆☆ [Hayato](https://www.instagram.com/p/C0qqAdAOXZo/?hl=en)
 
-☆☆ [n/naka]()
+☆☆ [n/naka](https://www.instagram.com/p/C2ZYZTfuFTA/?hl=en)
 
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
+
+☆ [Heritage](https://www.instagram.com/p/C01nsWYOXAT/?hl=en)
 
 ☆ [Holbox](https://www.instagram.com/p/C0vzHxFO1GM/?hl=en)
 
@@ -72,6 +84,8 @@
 
 ☆ [Orsa & Winston](https://www.instagram.com/p/C0yOtxjOP8n/?hl=en)
 
+☆ [Pasta|Bar](https://www.instagram.com/p/C1UgwWer05V/?hl=en)
+
 ☆ [Q Sushi](https://www.instagram.com/p/C0qusVhOBqE/?hl=en)
 
 ☆ [Sushi Kaneyoshi](https://www.instagram.com/p/C0v3yA2LoMY/?hl=en)
@@ -81,17 +95,23 @@
 ☆ [UKA](https://www.instagram.com/p/DFEBs0KyrOh/?hl=en)
 
 # New York
+☆☆☆ [Chef's Table at Brooklyn Fare](https://www.instagram.com/p/C2VtDSNy3Lz/?hl=en) 
+
 ☆☆☆ [Eleven Madison Park](https://www.instagram.com/p/C0v5vv3LOzN/?hl=en)
 
 ☆☆☆ [Le Bernardin](https://www.instagram.com/p/C0yS77gOcKA/?hl=en)
 
 ☆☆ [Aska](https://www.instagram.com/p/C0yMNEdOXES/?hl=en)
 
+☆☆ [Atera](https://www.instagram.com/p/C2ZYsP7u0Sp/?hl=en)
+
 ☆☆ [Atomix](https://www.instagram.com/p/C0qyCVkOHQZ/?hl=en)
 
 ☆☆ [Blanca](https://www.instagram.com/p/C76aBaoRjYa/?hl=en)
 
 ☆☆ [Cesar](https://www.instagram.com/p/DHLMjZURaIY/?hl=en)
+
+☆☆ [Daniel](https://www.instagram.com/p/C07kBUCh42e/?hl=en)
 
 ☆☆ [Momofuku Ko](https://www.instagram.com/p/C0qrOhtONWo/?hl=en)
 
@@ -103,9 +123,13 @@
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
 
+☆ [Cote](https://www.instagram.com/p/C0-PUI6Prci/?hl=en)
+
 ☆ [Estela](https://www.instagram.com/p/C0v3hBJLw25/?hl=en)
 
 ☆ [Jeju Noodle Bar](https://www.instagram.com/p/C0v4ZA5LeAB/?hl=en)
+
+☆ [Kajitsu](https://www.instagram.com/p/C2ZbR6ZO-_p/?hl=en)
 
 ☆ [Kochi](https://www.instagram.com/p/C0dhNKEubsC/?hl=en)
 
@@ -114,6 +138,8 @@
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
 ☆ [Shmone](https://www.instagram.com/p/C76bNORx6RK/?hl=en)
+
+☆ [Sushi Yasuda](https://www.instagram.com/p/C2ZbcgGuvjR/?hl=en)
 
 ☆ [Torrisi](https://www.instagram.com/p/C_KSIoNRgXV/?hl=en)
 
