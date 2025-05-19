@@ -207,7 +207,7 @@
 # Toyama
 ☆☆ [L'evo](https://www.instagram.com/p/C4AWOHCOkSI/?hl=en)
 
-☆☆ Oryori Fujii
+☆☆ [Oryouri Fujii](https://www.instagram.com/p/C4AVlF3OVLI/?hl=en)
 
 ☆ Sushi Jin
 
