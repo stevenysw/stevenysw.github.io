@@ -23,6 +23,8 @@
 
 ☆☆ [Californios](https://www.instagram.com/p/C0lE0quuzsi/?hl=en)
 
+☆☆ [Campton Place](https://www.instagram.com/p/C4qEU_7r_Bd/?hl=en)
+
 ☆☆ [Commis](https://www.instagram.com/p/C4ahqPWrvfb/?hl=en)
 
 ☆☆ [Lazy Bear](https://www.instagram.com/p/C0qxld4u-1Z/?hl=en)
@@ -38,6 +40,10 @@
 ☆ [ADEGA](https://www.instagram.com/p/C4kw04crZI_/?hl=en)
 
 ☆ [Angler](https://www.instagram.com/p/C4gLOgcxCcZ/?hl=en)
+
+☆ [Aphotic](https://www.instagram.com/p/C4nqpjrLPVY/?hl=en)
+
+☆ [Aster](https://www.instagram.com/p/C4nnqk8L50z/?hl=en)
 
 ☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
 
@@ -63,6 +69,8 @@
 
 ☆ [jū-ni](https://www.instagram.com/p/C0kD6wdvTsA/?hl=en)
 
+☆ [Kali](https://www.instagram.com/p/C4niuq1LuS9/?hl=en)
+
 ☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
 
 ☆ [Keiko Nob Hill](https://www.instagram.com/p/C00FDnjM6al/?hl=en)
@@ -70,6 +78,8 @@
 ☆ [Kenzo](https://www.instagram.com/p/C4iBFUHLAzz/?hl=en)
 
 ☆ [Kiln](https://www.instagram.com/p/C_pXQiHxpzg/?hl=en)
+
+☆ [Kinjo](https://www.instagram.com/p/C4nijE4rZHf/?hl=en)
 
 ☆ [Kin Khao](https://www.instagram.com/p/C4kwMMErqCu/?hl=en)
 
@@ -84,6 +94,8 @@
 ☆ [Mourad](https://www.instagram.com/p/C4lkEkUPy4b/?hl=en)
 
 ☆ [Nari](https://www.instagram.com/p/C01qBK6O0PA/?hl=en)
+
+☆ [Nico](https://www.instagram.com/p/C4npq2TLLE5/?hl=en)
 
 ☆ [Niku Steakhouse](https://www.instagram.com/p/C4lk2jovGcp/?hl=en)
 
@@ -102,6 +114,8 @@
 ☆ [Selby's](https://www.instagram.com/p/C4iG1R0L44c/?hl=en)
 
 ☆ [Sorrel](https://www.instagram.com/p/C0ihZNYOO91/?hl=en)
+
+☆ [Spruce](https://www.instagram.com/p/C4njdmWLn4n/?hl=en)
 
 ☆ [SPQR](https://www.instagram.com/p/C4iBe1QLa0_/?hl=en)
 
@@ -140,6 +154,8 @@
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
 
+☆ [Citrin](https://www.instagram.com/p/C4nmxOQrWyB/?hl=en)
+
 ☆ [CUT by Wolfgang Puck](https://www.instagram.com/p/C4i4TAePW92/?hl=en)
 
 ☆ [Dialogue](https://www.instagram.com/p/C4YeaQIPu5z/?hl=en)
@@ -171,6 +187,8 @@
 ☆ [Nozawa Bar](https://www.instagram.com/p/C4gLeTaRu4Y/?hl=en)
 
 ☆ [Orsa & Winston](https://www.instagram.com/p/C0yOtxjOP8n/?hl=en)
+
+☆ [Osteria Mozza](https://www.instagram.com/p/C4nojqrrATC/?hl=en)
 
 ☆ [Pasjoli](https://www.instagram.com/p/C4kvNZHLecD/?hl=en)
 
@@ -245,6 +263,10 @@
 
 ☆ [bōm](https://www.instagram.com/p/C76jLbiJf0Q/?hl=en)
 
+☆ [Cafe China](https://www.instagram.com/p/C46o3WTydJU/?hl=en)
+
+☆ [Casa Enrique](https://www.instagram.com/p/C4nmSBPr9vy/?hl=en)
+
 ☆ [Casa Mono](https://www.instagram.com/p/C4jbRs_vc_O/?hl=en)
 
 ☆ [Cote](https://www.instagram.com/p/C0-PUI6Prci/?hl=en)
@@ -308,6 +330,8 @@
 ☆☆ [minibar](https://www.instagram.com/p/DHw12t8ScH4/?hl=en)
 
 # Las Vegas
+☆☆☆ [Joël Robuchon](https://www.instagram.com/p/DC0BAcMyf4N/?hl=en)
+
 ☆☆ [Restaurant Guy Savoy](https://www.instagram.com/p/DIWeINOJYfc/?hl=en)
 
 # Florida
