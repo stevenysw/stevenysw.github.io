@@ -13,11 +13,15 @@
 
 ☆☆☆ [L'Osier](https://www.instagram.com/p/DEX35zKSzMG/?hl=en)
 
+☆☆☆ [Makimura](https://www.instagram.com/p/DEW4tJNxduO/?hl=en)
+
 ☆☆☆ [Nihonryori Ryugin](https://www.instagram.com/p/C0v162HOc_G/?hl=en)
 
 ☆☆☆ [Quintessence](https://www.instagram.com/p/C4TRd6VRTQE/?hl=en)
 
 ☆☆☆ [Sazenka](https://www.instagram.com/p/C2zfSEVrjWO/?hl=en)
+
+☆☆☆ [SÉZANNE](https://www.instagram.com/p/DEW3cDTRI5Y/?hl=en)
 
 ☆☆☆ [Sushi Saito](https://www.instagram.com/p/C_i_wjfyZ-5/?hl=en)
 
@@ -54,6 +58,8 @@
 ☆☆ [Sawada](https://www.instagram.com/p/C4bGTT4vJCj/?hl=en)
 
 ☆☆ [Sukiyabashi Jiro Roppongi Hills](https://www.instagram.com/p/C0lbgZSOZEz/?hl=en)
+
+☆☆ [Sushi Kimura](https://www.instagram.com/p/DG_l9wfSxb0/?hl=en)
 
 ☆☆ [Tempura Kondo](https://www.instagram.com/p/C0lX3ZzOf21/?hl=en)
 
@@ -181,6 +187,8 @@
 ☆☆ [Tempura Koizumi](https://www.instagram.com/p/C4Nm6VlLvAs/?hl=en)
 
 ☆☆ [Zeniya](https://www.instagram.com/p/C0q163QLhTe/?hl=en)
+
+☆ [Ipponsugi Kawashima](https://www.instagram.com/p/DHBFKRORnJo/?hl=en)
 
 ☆ [Sushi Mitsukawa](https://www.instagram.com/p/C0vzSpVOodW/?hl=en)
 
