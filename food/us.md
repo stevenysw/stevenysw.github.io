@@ -35,6 +35,8 @@
 
 ☆ [Avery](https://www.instagram.com/p/C2ZZzIHOScW/?hl=en)
 
+☆ [Bar Crenn](https://www.instagram.com/p/C4YeH1HP7ib/?hl=en)
+
 ☆ [Gary Danko](https://www.instagram.com/p/C0de8xsOpxF/?hl=en)
 
 ☆ [Hilda and Jesse](https://www.instagram.com/p/C-4cHO4RuVu/?hl=en)
@@ -81,6 +83,8 @@
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
+
+☆ [Dialogue](https://www.instagram.com/p/C4YeaQIPu5z/?hl=en)
 
 ☆ [Gucci Osteria da Massimo Bottura](https://www.instagram.com/p/C4X7zJ3RqiO/?hl=en)
 
@@ -160,6 +164,8 @@
 ☆ [Kosaka](https://www.instagram.com/p/C0zo1h3Prxw/?hl=en)
 
 ☆ [KyoYa](https://www.instagram.com/p/C4V36hJRVjK/?hl=en)
+
+☆ [Peter Luger Steak House](https://www.instagram.com/p/C4YdktsvPCd/?hl=en)
 
 ☆ [Restaurant Yuu](https://www.instagram.com/p/DHLrWHPRTCw/?hl=en)
 
