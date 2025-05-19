@@ -89,6 +89,8 @@
 
 ☆☆ [Ristorante Glam](https://www.instagram.com/p/C6uaxOdKjhI/?hl=en)
 
+☆ [IYO](https://www.instagram.com/p/C4eCY16SVzi/?hl=en)
+
 # Malta
 ☆☆ [ION Harbour](https://www.instagram.com/p/C4Vxe23xFlm/?hl=en)
 
