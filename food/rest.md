@@ -13,6 +13,8 @@
 ☆☆☆ [Odette](https://www.instagram.com/p/C0gH4ShO30z/?hl=en)
 
 # South Korea
+☆☆☆ [Gaon](https://www.instagram.com/p/C2VuC2vyO4x/?hl=en)
+
 ☆☆☆ [Mingles](https://www.instagram.com/p/C0labBROHUs/?hl=en)
 
 ☆☆☆ Mosu
@@ -20,6 +22,8 @@
 ☆☆ [Jungsik](https://www.instagram.com/p/C0v1IPBu7DI/?hl=en)
 
 # Thailand
+☆☆ [Gaa](https://www.instagram.com/p/C01q0T_uvYq/?hl=en)
+
 ☆☆ [Sühring](https://www.instagram.com/p/C0la60EOtBr/?hl=en)
 
 ☆ [Le Du](https://www.instagram.com/p/C0hig7zSF_g/?hl=en)
