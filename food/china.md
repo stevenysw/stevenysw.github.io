@@ -15,9 +15,9 @@
 
 ☆☆ [Imperial Treasure](https://www.instagram.com/p/C4TOrKIxYqc/?hl=en)
 
-☆☆ Yi Long Court
+☆☆ [Yi Long Court](https://www.instagram.com/p/C4dXH7HLj-7/?hl=en)
 
-☆ [Cheng Long Hang]()
+☆ Cheng Long Hang
 
 ☆ DaDong
 
@@ -27,19 +27,19 @@
 
 ☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
 
-☆ [Gastro Esthetics at DaDong]()
+☆ Gastro Esthetics at DaDong
 
-☆ [Il Ristorante - Niko Romito]()
+☆ [Il Ristorante - Niko Romito](https://www.instagram.com/p/C4bEw-ARXJz/?hl=en)
 
 ☆ [Jean Georges](https://www.instagram.com/p/C4Yakg1JOda/?hl=en)
 
-☆ Kanpai Classic
+☆ [Kanpai Classic](https://www.instagram.com/p/C4bLu4zvZub/?hl=en)
 
-☆ [Lao Zheng Xing]()
+☆ Lao Zheng Xing
 
-☆ [Le Comptoir de Pierre Gagnaire](https://www.instagram.com/p/C4bEw-ARXJz/?hl=en)
+☆ Le Comptoir de Pierre Gagnaire
 
-☆ [Lei Garden]()
+☆ Lei Garden
 
 ☆ [Ling Long](https://www.instagram.com/p/DBawSo5RKkv/?hl=en)
 
@@ -59,7 +59,7 @@
 
 ☆ [Ren He Guan](https://www.instagram.com/p/C4X6vrpR7nw/?hl=en)
 
-☆ [Seventh Son]()
+☆ Seventh Son
 
 ☆ [T'ang Court](https://www.instagram.com/p/DAfiVwrSNxF/?hl=en)
 
