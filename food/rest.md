@@ -22,6 +22,8 @@
 
 ☆☆☆ [Odette](https://www.instagram.com/p/C0gH4ShO30z/?hl=en)
 
+☆☆ [JAAN by Kirk Westaway](https://www.instagram.com/p/DCpgOx5zDx7/?hl=en))
+
 ☆ [Liao Fan Hawker Chan](https://www.instagram.com/p/C4TPmeNR5rO/?hl=en)
 
 # South Korea
