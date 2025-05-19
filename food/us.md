@@ -3,6 +3,8 @@
 
 ☆☆☆ [Coi](https://www.instagram.com/p/C0lbyLJuPlZ/?hl=en)
 
+☆☆☆ [Manresa](https://www.instagram.com/p/C4VvUbYROmv/?hl=en)
+
 ☆☆☆ [Quince](https://www.instagram.com/p/C01nE10O1Ub/?hl=en)
 
 ☆☆☆ [SingleThread Farm](https://www.instagram.com/p/C0z0pD8vsu6/?hl=en)
@@ -24,6 +26,8 @@
 ☆☆ [The Harbor House Inn](https://www.instagram.com/p/C-3g1dPyivM/?hl=en)
 
 ☆ [7 Adams](https://www.instagram.com/p/DAfkOUmyzLZ/?hl=en)
+
+☆ [715 Sushi](https://www.instagram.com/p/C4TQYPExz83/?hl=en)
 
 ☆ [Auberge du Soleil](https://www.instagram.com/p/C-FD-sERi-8/?hl=en)
 
@@ -68,6 +72,8 @@
 
 ☆☆ [n/naka](https://www.instagram.com/p/C2ZYZTfuFTA/?hl=en)
 
+☆☆ [Providence](https://www.instagram.com/p/C4VwT2zxgYU/?hl=en)
+
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
 ☆ [Camphor](https://www.instagram.com/p/C0dgbjPOkFf/?hl=en)
@@ -88,6 +94,8 @@
 
 ☆ [Q Sushi](https://www.instagram.com/p/C0qusVhOBqE/?hl=en)
 
+☆ [Sushi Inaba](https://www.instagram.com/p/C4TTg5lRVQl/?hl=en)
+
 ☆ [Sushi Kaneyoshi](https://www.instagram.com/p/C0v3yA2LoMY/?hl=en)
 
 ☆ [Valle](https://www.instagram.com/p/C0tQdcfObRf/?hl=en)
@@ -100,6 +108,10 @@
 ☆☆☆ [Eleven Madison Park](https://www.instagram.com/p/C0v5vv3LOzN/?hl=en)
 
 ☆☆☆ [Le Bernardin](https://www.instagram.com/p/C0yS77gOcKA/?hl=en)
+
+☆☆☆ [Per Se](https://www.instagram.com/p/C4Vv1CGRZxQ/?hl=en)
+
+☆☆ [Aquavit](https://www.instagram.com/p/C4THu3trnAM/?hl=en)
 
 ☆☆ [Aska](https://www.instagram.com/p/C0yMNEdOXES/?hl=en)
 
@@ -148,6 +160,8 @@
 ☆ [Yoshino](https://www.instagram.com/p/C0laFqwuFjg/?hl=en)
 
 # Chicago
+☆☆☆ [Alinea](https://www.instagram.com/p/C4TQveGxWYO/?hl=en)
+
 ☆☆☆ [Smyth](https://www.instagram.com/p/C0q3vJfr2cG/?hl=en)
 
 ☆☆ [Ever](https://www.instagram.com/p/C01mGgcu6Hs/?hl=en)
@@ -162,6 +176,8 @@
 
 # Florida
 ☆ [Capa](https://www.instagram.com/p/C0q3UszLXhn/?hl=en)
+
+☆ [Stubborn Seed](https://www.instagram.com/p/C4TRHPVxgzX/?hl=en)
 
 # Colorado
 ☆ [Beckon](https://www.instagram.com/p/C-o7cLXxjcA/?hl=en)
