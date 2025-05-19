@@ -69,11 +69,7 @@
 
 ☆ [jū-ni](https://www.instagram.com/p/C0kD6wdvTsA/?hl=en)
 
-☆ [Kali](https://www.instagram.com/p/C4niuq1LuS9/?hl=en)
-
-☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
-
-☆ [Keiko Nob Hill](https://www.instagram.com/p/C00FDnjM6al/?hl=en)
+☆ [Keiko a Nob Hill](https://www.instagram.com/p/C00FDnjM6al/?hl=en)
 
 ☆ [Kenzo](https://www.instagram.com/p/C4iBFUHLAzz/?hl=en)
 
@@ -121,6 +117,8 @@
 
 ☆ [SSAL](https://www.instagram.com/p/C0vtfEMu1xh/?hl=en)
 
+☆ State Bird Provision
+
 ☆ [Sushi Shin](https://www.instagram.com/p/C0dlwd6O8sr/?hl=en)
 
 ☆ [Sushi Yoshizumi](https://www.instagram.com/p/C01yMLiLJKK/?hl=en)
@@ -148,7 +146,11 @@
 
 ☆☆ [Providence](https://www.instagram.com/p/C4VwT2zxgYU/?hl=en)
 
+☆☆ [Somni](https://www.instagram.com/p/DDQLsd_SDDz/?hl=en)
+
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
+
+☆☆ Verspertine
 
 ☆ [Bistro Na](https://www.instagram.com/p/C4dXaz-LWzl/?hl=en)
 
@@ -169,6 +171,10 @@
 ☆ [Heritage](https://www.instagram.com/p/C01nsWYOXAT/?hl=en)
 
 ☆ [Holbox](https://www.instagram.com/p/C0vzHxFO1GM/?hl=en)
+
+☆ [Kali](https://www.instagram.com/p/C4niuq1LuS9/?hl=en)
+
+☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
 
 ☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
 
@@ -333,6 +339,10 @@
 ☆☆☆ [Joël Robuchon](https://www.instagram.com/p/DC0BAcMyf4N/?hl=en)
 
 ☆☆ [Restaurant Guy Savoy](https://www.instagram.com/p/DIWeINOJYfc/?hl=en)
+
+☆ DJT
+
+☆ [Wing Lei](https://www.instagram.com/p/DC-T3A6yjAy/?hl=en)
 
 # Florida
 ☆ [Capa](https://www.instagram.com/p/C0q3UszLXhn/?hl=en)
