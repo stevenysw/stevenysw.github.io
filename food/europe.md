@@ -1,6 +1,8 @@
 # Austria
 ☆☆ [Steirereck](https://www.instagram.com/p/C0gDUhtOtaJ/?hl=en)
 
+☆ [Das LOFT](https://www.instagram.com/p/C0yOEFGOaQ6/?hl=en)
+
 # Belgium
 ☆☆☆ [Zilte](https://www.instagram.com/p/DF32IbPSWuf/?hl=en)
 
@@ -76,6 +78,8 @@
 ☆☆ [Belcanto](https://www.instagram.com/p/C0gR_VXu8No/?hl=en)
 
 # Spain
+☆☆☆ [ABaC](https://www.instagram.com/p/C0yOhzSObHM/?hl=en)
+
 ☆☆☆ [Akelaŕe](https://www.instagram.com/p/C0gOSwbuifJ/?hl=en)
 
 ☆☆☆ [Arzak](https://www.instagram.com/p/C0dmGxGum1M/?hl=en)
@@ -90,6 +94,8 @@
 
 # Sweden
 ☆☆☆ [Frantzen](https://www.instagram.com/p/DF31JgHyiCJ/?hl=en)
+
+☆☆ [Gastrologik](https://www.instagram.com/p/C0yKzUQrMpe/?hl=en)
 
 # United Kingdom
 ☆☆☆ [Restaurant Gordon Ramsay](https://www.instagram.com/p/C0gHdWsO0cO/?hl=en)
