@@ -28,9 +28,13 @@
 
 ☆☆☆ [L'Ambroise](https://www.instagram.com/p/C0gQ2ixO2ro/?hl=en)
 
+☆☆☆ [l’Arpège]https://www.instagram.com/p/C4V1AnBRn95/?hl=en)
+
 ☆☆☆ [La Villa Madie](https://www.instagram.com/p/C0hso9SxHFw/?hl=en)
 
 ☆☆☆ [Le Gabriel](https://www.instagram.com/p/DHLwRuqxOyt/?hl=en)
+
+☆☆☆ [Le Pré Catelan](https://www.instagram.com/p/C4Vx8PdRXUk/?hl=en)
 
 ☆☆☆ [Mirazur](https://www.instagram.com/p/C2Za0dHOQvI/?hl=en)
 
@@ -42,7 +46,7 @@
 
 ☆☆ [L'Abysse ay Pavillon Ledoyen](https://www.instagram.com/p/C2ZZXTiuIte/?hl=en)
 
-☆☆ [L'Oiseau Blanc]https://www.instagram.com/p/C4TQJskxCbp/?hl=en)
+☆☆ [L'Oiseau Blanc](https://www.instagram.com/p/C4TQJskxCbp/?hl=en)
 
 ☆ [1741](https://www.instagram.com/p/C4TP6Z5xkc2/?hl=en)
 
@@ -50,6 +54,8 @@
 
 # Germany
 ☆☆☆ [Aqua](https://www.instagram.com/p/DHOnXDzPi9K/?hl=en)
+
+☆☆☆ [Rutz](https://www.instagram.com/p/C4V0q7VRRhm/?hl=en)
 
 ☆☆ [CODA](https://www.instagram.com/p/DF4ecM9R8SQ/?hl=en)
 
@@ -75,8 +81,13 @@
 
 ☆☆ [Ristorante Glam](https://www.instagram.com/p/C6uaxOdKjhI/?hl=en)
 
+# Malta
+☆☆ [ION Harbour](https://www.instagram.com/p/C4Vxe23xFlm/?hl=en)
+
 # Netherland
 ☆☆ [Parkheuvel](https://www.instagram.com/p/C0vxSCGOt2E/?hl=en)
+
+☆ [RIJKS](https://www.instagram.com/p/C4TTIH9RNq-/?hl=en)
 
 # Norway
 ☆☆☆ [Maaemo](https://www.instagram.com/p/C0dho7su4cT/?hl=en)
@@ -100,6 +111,8 @@
 ☆☆☆ [Cocina Hermanos Torres](https://www.instagram.com/p/C0jHIV2ryhY/?hl=en)
 
 ☆☆☆ [Quique Dacosta](https://www.instagram.com/p/C61E2I0L6TA/?hl=en)
+
+☆☆ [Angle](https://www.instagram.com/p/C4TS7Pwx4We/?hl=en)
 
 ☆☆ [Moments](https://www.instagram.com/p/C0lcaY5uKRd/?hl=en)
 
