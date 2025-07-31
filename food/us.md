@@ -27,6 +27,8 @@
 
 ☆☆ [Commis](https://www.instagram.com/p/C4ahqPWrvfb/?hl=en)
 
+☆☆ [Enclos](https://www.instagram.com/p/DLdrmwhSowU/?hl=en&img_index=1)
+
 ☆☆ [Lazy Bear](https://www.instagram.com/p/C0qxld4u-1Z/?hl=en)
 
 ☆☆ [Sons & Daughters](https://www.instagram.com/p/C0yKMe8Limf/?hl=en)
@@ -119,6 +121,8 @@
 
 ☆ [State Bird Provision](https://www.instagram.com/p/DJ09T7cxjQj/)
 
+☆ [Sun Moon Studio](https://www.instagram.com/p/DMCf0rAu9F9/?hl=en&img_index=1)
+
 ☆ [Sushi Shin](https://www.instagram.com/p/C0dlwd6O8sr/?hl=en)
 
 ☆ [Sushi Yoshizumi](https://www.instagram.com/p/C01yMLiLJKK/?hl=en)
@@ -138,15 +142,15 @@
 # Southern California
 ☆☆☆ [Addison](https://www.instagram.com/p/C0oxe9aLdsJ/?hl=en)
 
+☆☆☆ [Providence](https://www.instagram.com/p/C4VwT2zxgYU/?hl=en)
+
+☆☆☆ [Somni](https://www.instagram.com/p/DDQLsd_SDDz/?hl=en)
+
 ☆☆ [Hayato](https://www.instagram.com/p/C0qqAdAOXZo/?hl=en)
 
 ☆☆ [Melisse](https://www.instagram.com/p/C4WB1P4vj3s/?hl=en)
 
 ☆☆ [n/naka](https://www.instagram.com/p/C2ZYZTfuFTA/?hl=en)
-
-☆☆ [Providence](https://www.instagram.com/p/C4VwT2zxgYU/?hl=en)
-
-☆☆ [Somni](https://www.instagram.com/p/DDQLsd_SDDz/?hl=en)
 
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
@@ -203,6 +207,8 @@
 ☆ [Phenakite](https://www.instagram.com/p/C4bMI5EPmtw/?hl=en)
 
 ☆ [Q Sushi](https://www.instagram.com/p/C0qusVhOBqE/?hl=en)
+
+☆ [Restaruant Ki](https://www.instagram.com/p/DL57qq6y5J_/?hl=en&img_index=1)
 
 ☆ [Shibumi](https://www.instagram.com/p/C4iEOV3LBwD/?hl=en)
 
