@@ -1,7 +1,7 @@
 ## About Me
 I am a Research Data Scientist at [Google](https://ads.google.com/). I obtained my Ph.D. in [Statistics from the University of California, Los Angeles](http://statistics.ucla.edu/), in March 2025, under the supervision of [Dr. Oscar Hernan Madrid Padilla](https://hernanmp.github.io/).
 
-Before that, I graduated with Highest Distinction from the [University of California, Berkeley](http://www.berkeley.edu), with a dual degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
+Before that, I graduated with Highest Distinction from the [University of California, Berkeley](http://www.berkeley.edu), with a double degree in [Applied Mathematics](https://math.berkeley.edu/) and [Statistics](http://statistics.berkeley.edu/). Throughout my undergraduate years, I had the privilege of collaborating with [Dr. Carl Boettiger](https://www.carlboettiger.info/) as a research intern at [rOpenSci](https://ropensci.org/) and with [Dr. Philip B. Stark](https://www.stat.berkeley.edu/~stark/) as a research assistant. 
 
 My industry experience includes internships across leading organizations: Data Science & Statistical Research Team at [Nokia Bell Labs](https://www.bell-labs.com/) (June–December 2022), Payments Data Science and Engineering Team at [Netflix](https://www.netflix.com/) (June–September 2023), and AIM-DS Team at [Google](https://ads.google.com/) (June–September 2024).
 
@@ -16,6 +16,8 @@ My doctoral research focused on non-parametric statistics and causal inference, 
 A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li, A. Palma, Q. Wan, W. Gu, A. Sen, Z. Wang, G.D. O'Connell, P.B. Stark. *Look Who’s Talking: Gender Differences in Academic Job Talks.* [PDF](https://www.scienceopen.com/hosted-document?doi=10.14293/S2199-1006.1.SOR.2023.0003.v1). **ScienceOpen Research, 2023.**
 
 **S. Ye**, Y. Chen, and O.H.M. Padilla. *Causal Effect Estimation via Fused Lasso over Graph.* **Under Review, 2024+.**
+
+**S. Ye**. *Locally Adaptive Statistical Models with Applications in Quantile Regression and Causal Inference.* **[Dissertation](https://escholarship.org/uc/item/8tq7b192), 2025.**
 
 ## Teaching
 ### Teaching Assistant
