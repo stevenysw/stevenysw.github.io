@@ -1,5 +1,5 @@
 # Antwerp, Belgium
-[Dogma]https://www.instagram.com/p/DHLxwcXx4MC/?hl=en&img_index=1)
+[Dogma](https://www.instagram.com/p/DHLxwcXx4MC/?hl=en&img_index=1)
 
 # Paris, France
 [Le Syndicat](https://www.instagram.com/p/DHLyAMFxdf7/?hl=en&img_index=1)
