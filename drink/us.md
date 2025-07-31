@@ -14,6 +14,15 @@
 [NoMad Bar](https://www.instagram.com/p/DH06beXpBsb/?hl=en&img_index=1)
 
 # New York
+[Attaboy](https://www.instagram.com/p/DHNwp44R_AK/?hl=en&img_index=1)
+
+[Bar Belly](https://www.instagram.com/p/DHNw4EdxwfK/?hl=en&img_index=1)
+
+[Clover Club](https://www.instagram.com/p/DHLL-dYRMGT/?hl=en&img_index=1)
+
+[Nubeluz](https://www.instagram.com/p/DHOl5KCP1m9/?hl=en&img_index=1)
+
+[The Long Island Bar](https://www.instagram.com/p/DHLqpP6x25d/?hl=en)
 
 # Washington DC
 [Allegory](https://www.instagram.com/p/DHzTBS9Sm04/?hl=en&img_index=1)
