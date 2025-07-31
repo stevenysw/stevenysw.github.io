@@ -65,6 +65,8 @@
 
 ☆☆ [Sushi Kimura](https://www.instagram.com/p/DG_l9wfSxb0/?hl=en)
 
+☆☆ [Tempura Ginya](https://www.instagram.com/p/DLXR0O2xtKm/?hl=en&img_index=1)
+
 ☆☆ [Tempura Kondo](https://www.instagram.com/p/C0lX3ZzOf21/?hl=en)
 
 ☆☆ [ZURRIOLA](https://www.instagram.com/p/C0deAIBurTS/?hl=en)
