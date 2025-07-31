@@ -10,9 +10,15 @@
 ☆ [Palette](https://www.instagram.com/p/C5E7QNuyrqn/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Canada
+☆ [Alo](https://www.instagram.com/p/DMuNe_DO6td/?hl=en&img_index=1)
+
 ☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
 
 ☆ [Burdock & Co](https://www.instagram.com/p/C4iIgPCLQiU/?hl=en)
+
+☆ [Hexagon](https://www.instagram.com/p/DMwucUDuoiY/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
+
+☆ [Quetzal](https://www.instagram.com/p/DMwKGSmSjTI/?hl=en&img_index=1)
 
 # Mexico
 ☆☆ [Pujol](https://www.instagram.com/p/C0ddiLSuzOq/?hl=en)
