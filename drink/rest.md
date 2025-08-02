@@ -11,6 +11,8 @@
 
 [Cry Baby Gallery](https://www.instagram.com/p/DMwJyHIy5I-/?hl=en&img_index=1)
 
+[Library Bar]（https://www.instagram.com/p/DM1vQfFugEI/?hl=en&img_index=1）
+
 [Mother](https://www.instagram.com/p/DMwtqU6u0NO/?hl=en&img_index=1)
 
 [Simpl Things](https://www.instagram.com/p/DMwKSsVy6UA/?hl=en&img_index=1)
