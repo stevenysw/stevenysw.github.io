@@ -16,5 +16,7 @@
 # Akita
 [Bar 1980](https://www.instagram.com/p/DHLtxf1xsxm/?hl=en&img_index=1)
 
+[Bar Leverre](https://www.instagram.com/p/DHIyWhBRUJ2/?hl=en&img_index=1)
+
 [Lady](https://www.instagram.com/p/DHUDqIry6Gr/?hl=en&img_index=1)
 
