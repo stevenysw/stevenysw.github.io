@@ -42,4 +42,4 @@ A.K. Glazer, H. Luo, S. Devgon, C. Wang, X. Yao, **S. Ye**, F. McQuarrie, Z. Li,
 *   STAT 101B: **Introduction to Design and Analysis of Experiment** (Spring 2023)
 
 ## Personal
-I love travel and eat & drink! Click to view my [travel](travel.md) and [food & drink](food.md) photography gallery!
+I love travel and food & drink! Click to view my [Travel](travel.md) and [Restaurant & Bar](food.md) photography gallery!
