@@ -18,6 +18,8 @@
 
 [Bar Belly](https://www.instagram.com/p/DHNw4EdxwfK/?hl=en&img_index=1)
 
+[Bar Goto](https://www.instagram.com/p/DHIvTy0xeIy/?hl=en&img_index=1)
+
 [Clover Club](https://www.instagram.com/p/DHLL-dYRMGT/?hl=en&img_index=1)
 
 [Nubeluz](https://www.instagram.com/p/DHOl5KCP1m9/?hl=en&img_index=1)
