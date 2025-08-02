@@ -1,4 +1,6 @@
 # Antwerp, Belgium
+[BelRoy's](https://www.instagram.com/p/DHIxtI6Rb6o/?hl=en&img_index=1)
+
 [Dogma](https://www.instagram.com/p/DHLxwcXx4MC/?hl=en&img_index=1)
 
 # Paris, France
@@ -7,6 +9,8 @@
 [The Cambridge Public House](https://www.instagram.com/p/DHR0rlMyKwV/?hl=en&img_index=1)
 
 # Berlin, Germany
+[Hildegard Bar](https://www.instagram.com/p/DHIxdEYRFsB/?hl=en&img_index=1)
+
 [Truffle Pig](https://www.instagram.com/p/DHOlZ2xvsvV/?hl=en)
 
 [Wax On](https://www.instagram.com/p/DHLubqMxWsd/?hl=en&img_index=1)
