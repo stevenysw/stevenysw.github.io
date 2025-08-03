@@ -11,6 +11,8 @@
 # Berlin, Germany
 [Hildegard Bar](https://www.instagram.com/p/DHIxdEYRFsB/?hl=en&img_index=1)
 
+[The Curtain Club](https://www.instagram.com/p/DHIQ-dUxc4G/?hl=en&img_index=1)
+
 [Truffle Pig](https://www.instagram.com/p/DHOlZ2xvsvV/?hl=en)
 
 [Wax On](https://www.instagram.com/p/DHLubqMxWsd/?hl=en&img_index=1)
@@ -21,6 +23,8 @@
 [Splippbarinn](https://www.instagram.com/p/DHLu8oGRZCu/?hl=en&img_index=1)
 
 # Amsterdam, Netherlands
+[Branie](https://www.instagram.com/p/DHIQuzEx1IE/?hl=en&img_index=1)
+
 [Flying Dutchmen](https://www.instagram.com/p/DHOlEaxPkhi/?hl=en&img_index=1)
 
 [Law & Order](https://www.instagram.com/p/DHUETPfSeTv/?hl=en&img_index=1)
