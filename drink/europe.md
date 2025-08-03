@@ -4,7 +4,13 @@
 [Dogma](https://www.instagram.com/p/DHLxwcXx4MC/?hl=en&img_index=1)
 
 # Paris, France
+[Bar Nouveau](https://www.instagram.com/p/DF6_AgtRBKh/?hl=en&img_index=1)
+
+[Candelaria](https://www.instagram.com/p/DF6_iX5xbyf/?hl=en&img_index=1)
+
 [Le Syndicat](https://www.instagram.com/p/DHLyAMFxdf7/?hl=en&img_index=1)
+
+[Little Red Door](https://www.instagram.com/p/DF6R-evSA31/?hl=en&img_index=1)
 
 [The Cambridge Public House](https://www.instagram.com/p/DHR0rlMyKwV/?hl=en&img_index=1)
 
@@ -25,11 +31,15 @@
 # Amsterdam, Netherlands
 [Branie](https://www.instagram.com/p/DHIQuzEx1IE/?hl=en&img_index=1)
 
+[Door 74](https://www.instagram.com/p/DF6-JfbxdJI/?hl=en&img_index=1)
+
 [Flying Dutchmen](https://www.instagram.com/p/DHOlEaxPkhi/?hl=en&img_index=1)
 
 [Law & Order](https://www.instagram.com/p/DHUETPfSeTv/?hl=en&img_index=1)
 
 [Rosalia’s Menagerie](https://www.instagram.com/p/DHUEsxoy1yF/?hl=en&img_index=1)
+
+[Tales & Spirits](https://www.instagram.com/p/DF69z77RQiF/?hl=en&img_index=1)
 
 [Super Lyan](https://www.instagram.com/p/DHOablmJ5T6/?hl=en&img_index=1)
 
