@@ -6,6 +6,8 @@
 
 [Dante](https://www.instagram.com/p/DHm6_1txriT/?hl=en&img_index=1)
 
+[The Spare Room](https://www.instagram.com/p/DFEBQBqylHN/?hl=en&img_index=1)
+
 # Las Vegas
 [Electra Cocktail Lounge](https://www.instagram.com/p/DIWd6cUJRZ6/?hl=en&img_index=1)
 
@@ -22,7 +24,11 @@
 
 [Clover Club](https://www.instagram.com/p/DHLL-dYRMGT/?hl=en&img_index=1)
 
+[Mister Paradise](https://www.instagram.com/p/DHBM0rXx8vh/?hl=en&img_index=1)
+
 [Nubeluz](https://www.instagram.com/p/DHOl5KCP1m9/?hl=en&img_index=1)
+
+[Paradise Lost](https://www.instagram.com/p/DHGXC7uKkke/?hl=en&img_index=1)
 
 [The Long Island Bar](https://www.instagram.com/p/DHLqpP6x25d/?hl=en)
 
