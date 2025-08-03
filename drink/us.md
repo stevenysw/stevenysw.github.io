@@ -4,16 +4,24 @@
 # Los Angeles
 [Bar Next Door](https://www.instagram.com/p/DJzeH8dSfn2/?hl=en&img_index=1)
 
+[Big Bar](https://www.instagram.com/p/DEW6VmyRVDs/?hl=en&img_index=1)
+
 [Dante](https://www.instagram.com/p/DHm6_1txriT/?hl=en&img_index=1)
+
+[Melrose Umbrella Co.](https://www.instagram.com/p/DCn5ZLhxrQF/?hl=en&img_index=1)
 
 [The Spare Room](https://www.instagram.com/p/DFEBQBqylHN/?hl=en&img_index=1)
 
 # Las Vegas
 [Electra Cocktail Lounge](https://www.instagram.com/p/DIWd6cUJRZ6/?hl=en&img_index=1)
 
+[Herbs & Rye](https://www.instagram.com/p/DDQNbU0SvIG/?hl=en&img_index=1)
+
 [Legacy Club](https://www.instagram.com/p/DHw1maXSS_m/?hl=en&img_index=1)
 
 [NoMad Bar](https://www.instagram.com/p/DH06beXpBsb/?hl=en&img_index=1)
+
+[The Golden Tiki](https://www.instagram.com/p/DCz_AgBy7HO/?hl=en&img_index=1)
 
 # New York
 [Attaboy](https://www.instagram.com/p/DHNwp44R_AK/?hl=en&img_index=1)
