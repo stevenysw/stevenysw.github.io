@@ -27,15 +27,17 @@
 
 [Coa](https://www.instagram.com/p/C2FtNkyR_hR/?hl=en&img_index=1)
 
-[Darkside](https://www.instagram.com/p/C2DYkBqyLmR/?hl=en&img_index=1)
+[DarkSide](https://www.instagram.com/p/C2DYkBqyLmR/?hl=en&img_index=1)
 
-[Honkytonks Tavern](https://www.instagram.com/p/C3Ew6hbOtlA/?hl=en&img_index=1)
+[Honky Tonks Tavern](https://www.instagram.com/p/C3Ew6hbOtlA/?hl=en&img_index=1)
 
 [Mizunara: The Library](https://www.instagram.com/p/C2FIZYqrdPw/?hl=en)
 
 [Penicillin](https://www.instagram.com/p/C2DXr-pv3Tz/?hl=en&img_index=1)
 
 [Quinary](https://www.instagram.com/p/C2CfDh0LW8-/?hl=en&img_index=1)
+
+[Tell Camellia](https://www.instagram.com/p/DM8epJMS_Ci/?hl=en)
 
 [The Aubrey](https://www.instagram.com/p/DLXTWdcRkqT/?hl=en&img_index=1)
 
