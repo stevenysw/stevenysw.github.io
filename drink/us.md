@@ -27,7 +27,11 @@
 
 [Dante](https://www.instagram.com/p/DHm6_1txriT/?hl=en&img_index=1)
 
+[Employees Only](https://www.instagram.com/p/C4ni1mGrT2D/?hl=en&img_index=1)
+
 [Melrose Umbrella Co.](https://www.instagram.com/p/DCn5ZLhxrQF/?hl=en&img_index=1)
+
+[Mirate](https://www.instagram.com/p/C7R0wbEpR7K/?hl=en&img_index=1)
 
 [The Spare Room](https://www.instagram.com/p/DFEBQBqylHN/?hl=en&img_index=1)
 
