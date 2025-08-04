@@ -1,6 +1,8 @@
 # Bay Area
 [ABV](https://www.instagram.com/p/C2Fu-GvPoTK/?hl=en&img_index=1)
 
+[Alter Ego](https://www.instagram.com/p/DM8fx7oSfbE/?hl=en&img_index=1)
+
 [Bar Iris](https://www.instagram.com/p/C2FINOgrSvu/?hl=en&img_index=1)
 
 [Friends and Family](https://www.instagram.com/p/C9y8y5dx4fM/?hl=en&img_index=1)
