@@ -40,6 +40,8 @@
 
 [Handshake Speakeasy](https://www.instagram.com/p/C2Ceb6krOPs/?hl=en&img_index=1)
 
+[Hanky Panky](https://www.instagram.com/p/DM63tW-xdac/?hl=en&img_index=1)
+
 [Licoreria Limantour](https://www.instagram.com/p/C2FI1_8rV4d/?hl=en&img_index=1)
 
 [Kaito del Valle](https://www.instagram.com/p/C2CsalOrxC-/?hl=en&img_index=1)
