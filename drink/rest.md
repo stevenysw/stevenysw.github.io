@@ -1,3 +1,6 @@
+# Edmonton, Canada
+[Baijiu](https://www.instagram.com/p/C-3hQKWSOBQ/?hl=en&img_index=1)
+
 # Toronto, Canada
 [Bar Mordecai](https://www.instagram.com/p/DMwux7mOwzh/?hl=en)
 
