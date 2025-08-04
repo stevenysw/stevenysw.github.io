@@ -9,6 +9,8 @@
 
 [Bar Kisara](https://www.instagram.com/p/C4dYzNHLTMB/?hl=en&img_index=1)
 
+[Bar Odin](https://www.instagram.com/p/DM8WyhaSuuS/?hl=en&img_index=1)
+
 [Bar Opa Ginza](https://www.instagram.com/p/DLZeSPZuOn-/?hl=en&img_index=1)
 
 [Bar Orchard Ginza](https://www.instagram.com/p/DEUXhxUR5KS/?hl=en&img_index=1)
@@ -65,6 +67,8 @@
 
 [Bar Juniper](https://www.instagram.com/p/C2UR-7Nu21f/?hl=en&img_index=1)
 
+[Bar K](https://www.instagram.com/p/DM8XGG4yadl/?hl=en&img_index=1)
+
 [Bar Rarity](https://www.instagram.com/p/DHUD4eCyYCU/?hl=en&img_index=1)
 
 [Bar Ren](https://www.instagram.com/p/DHUDUaESykL/?hl=en&img_index=1)
@@ -76,12 +80,16 @@
 [Kitashinchi Samboa](https://www.instagram.com/p/DBwDSdXR-Aj/?hl=en)
 
 # Kyoto
+[Bar K6](https://www.instagram.com/p/DM8XQ8Hy6In/?hl=en&img_index=1)
+
 [Bar Rocking Chair](https://www.instagram.com/p/C4Nr7JMr9IE/?hl=en&img_index=1)
 
 [Bee's Knees](https://www.instagram.com/p/C4NsJofrjPB/?hl=en&img_index=1)
 
 # Nagoya
 [Bar Barns](https://www.instagram.com/p/DEUVTaxxxDD/?hl=en&img_index=1)
+
+[Kreis](https://www.instagram.com/p/DM8W6xQSZj-/?hl=en&img_index=1)
 
 # Fukuoka
 [Bar Oscar](https://www.instagram.com/p/DDQNurnSLVT/?hl=en&img_index=1)
@@ -114,6 +122,9 @@
 [Shot Bar Oak](https://www.instagram.com/p/C79RJIiJb62/?hl=en&img_index=1)
 
 [Tie & Loose](https://www.instagram.com/p/C79PyTTJzoj/?hl=en&img_index=1)
+
+# Niigata
+[OWL](https://www.instagram.com/p/DM8f3v8SEiM/?hl=en&img_index=1)
 
 # Kanazawa
 [Soryu](https://www.instagram.com/p/C4NpgXfrzz1/?hl=en&img_index=1)
