@@ -1,4 +1,6 @@
 # Tokyo
+[Bar Capri](https://www.instagram.com/p/DM6x28Wx-zS/?hl=en&img_index=1)
+
 [Bar High Five](https://www.instagram.com/p/C3EzF2sOz5c/?hl=en&img_index=1)
 
 [Bar Kisara](https://www.instagram.com/p/C4dYzNHLTMB/?hl=en&img_index=1)
@@ -20,6 +22,8 @@
 [Higuruma](https://www.instagram.com/p/C79Nh-ApSRV/?hl=en&img_index=1)
 
 [Little Smith](https://www.instagram.com/p/DEdHXEgyxTa/?hl=en&img_index=1)
+
+[Memento Mori](https://www.instagram.com/p/DM6x_QLRG1q/?hl=en&img_index=1)
 
 [Mixiology Salon](https://www.instagram.com/p/DC8uffSRX8d/?hl=en&img_index=1)
 
