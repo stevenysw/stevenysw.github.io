@@ -17,6 +17,8 @@
 [Hope & Sesame](https://www.instagram.com/p/DLTsDGHRbl9/?hl=en&img_index=1)
 
 # Hong Kong
+[Honkytonks Tavern](https://www.instagram.com/p/C3Ew6hbOtlA/?hl=en&img_index=1)
+
 [The Aubrey](https://www.instagram.com/p/DLXTWdcRkqT/?hl=en&img_index=1)
 
 # Taipei
