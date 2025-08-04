@@ -1,7 +1,13 @@
 # Tokyo
+[Bar High Five](https://www.instagram.com/p/C3EzF2sOz5c/?hl=en&img_index=1)
+
+[Bar Kisara](https://www.instagram.com/p/C4dYzNHLTMB/?hl=en&img_index=1)
+
 [Bar Opa Ginza](https://www.instagram.com/p/DLZeSPZuOn-/?hl=en&img_index=1)
 
 [Bar Orchard Ginza](https://www.instagram.com/p/DEUXhxUR5KS/?hl=en&img_index=1)
+
+[Bar P.M.9](https://www.instagram.com/p/C4dXq-CL6Br/?hl=en&img_index=1)
 
 [Bar Wakabayashi](https://www.instagram.com/p/DHOmB7QyYLR/?hl=en&img_index=1)
 
@@ -17,6 +23,12 @@
 
 [Mixiology Salon](https://www.instagram.com/p/DC8uffSRX8d/?hl=en&img_index=1)
 
+[Radio](https://www.instagram.com/p/C4dX4FWryt3/?hl=en&img_index=1)
+
+[Samboa Ginza](https://www.instagram.com/p/C4dZe1ArQOF/?hl=en&img_index=1)
+
+[Star Bar Ginza](https://www.instagram.com/p/C4IYtRiL5jo/?hl=en&img_index=1)
+
 [The Bellwood](https://www.instagram.com/p/DEdHg5DyDMe/?hl=en&img_index=1)
 
 [THESE](https://www.instagram.com/p/DAfjnZHyIuq/?hl=en&img_index=1)
@@ -26,9 +38,13 @@
 [Virtù](https://www.instagram.com/p/DAfitjzyQp7/?hl=en&img_index=1)
 
 # Yokohama
+[Bar Noble](https://www.instagram.com/p/C37vtltr_ZH/?hl=en&img_index=1)
+
 [The Bar Casablance](https://www.instagram.com/p/DCrqn8_y5q6/?hl=en&img_index=1)
 
 # Osaka
+[Bar Augusta](https://www.instagram.com/p/C4N3DsSLkiS/?hl=en&img_index=1)
+
 [Bar Rarity](https://www.instagram.com/p/DHUD4eCyYCU/?hl=en&img_index=1)
 
 [Bar Ren](https://www.instagram.com/p/DHUDUaESykL/?hl=en&img_index=1)
@@ -36,6 +52,11 @@
 [Craftroom](https://www.instagram.com/p/DBfoKFJRIom/?hl=en&img_index=1)
 
 [Kitashinchi Samboa](https://www.instagram.com/p/DBwDSdXR-Aj/?hl=en)
+
+# Kyoto
+[Bar Rocking Chair](https://www.instagram.com/p/C4Nr7JMr9IE/?hl=en&img_index=1)
+
+[Bee's Knees](https://www.instagram.com/p/C4NsJofrjPB/?hl=en&img_index=1)
 
 # Nagoya
 [Bar Barns](https://www.instagram.com/p/DEUVTaxxxDD/?hl=en&img_index=1)
@@ -62,6 +83,9 @@
 [Shot Bar Oak](https://www.instagram.com/p/C79RJIiJb62/?hl=en&img_index=1)
 
 [Tie & Loose](https://www.instagram.com/p/C79PyTTJzoj/?hl=en&img_index=1)
+
+# Kanazawa
+[Soryu](https://www.instagram.com/p/C4NpgXfrzz1/?hl=en&img_index=1)
 
 # Kobe
 [Bar Le Salon](https://www.instagram.com/p/DBdlVqevhId/?hl=en&img_index=1)
