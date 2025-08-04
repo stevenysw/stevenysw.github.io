@@ -11,11 +11,19 @@
 
 [Gas Light Eve](https://www.instagram.com/p/DLXQc1SxlNd/?hl=en&img_index=1)
 
+[Higuruma](https://www.instagram.com/p/C79Nh-ApSRV/?hl=en&img_index=1)
+
 [Little Smith](https://www.instagram.com/p/DEdHXEgyxTa/?hl=en&img_index=1)
 
 [Mixiology Salon](https://www.instagram.com/p/DC8uffSRX8d/?hl=en&img_index=1)
 
 [The Bellwood](https://www.instagram.com/p/DEdHg5DyDMe/?hl=en&img_index=1)
+
+[THESE](https://www.instagram.com/p/DAfjnZHyIuq/?hl=en&img_index=1)
+
+[Tokyo Confidential](https://www.instagram.com/p/C_lmTmaSZcf/?hl=en&img_index=1)
+
+[Virtù](https://www.instagram.com/p/DAfitjzyQp7/?hl=en&img_index=1)
 
 # Yokohama
 [The Bar Casablance](https://www.instagram.com/p/DCrqn8_y5q6/?hl=en&img_index=1)
@@ -24,6 +32,8 @@
 [Bar Rarity](https://www.instagram.com/p/DHUD4eCyYCU/?hl=en&img_index=1)
 
 [Bar Ren](https://www.instagram.com/p/DHUDUaESykL/?hl=en&img_index=1)
+
+[Craftroom](https://www.instagram.com/p/DBfoKFJRIom/?hl=en&img_index=1)
 
 [Kitashinchi Samboa](https://www.instagram.com/p/DBwDSdXR-Aj/?hl=en)
 
@@ -46,5 +56,20 @@
 
 [Lady](https://www.instagram.com/p/DHUDqIry6Gr/?hl=en&img_index=1)
 
+# Miyazaki
+[Nomi no Ichi](https://www.instagram.com/p/C79NLJWpDxH/?hl=en&img_index=1)
+
+[Shot Bar Oak](https://www.instagram.com/p/C79RJIiJb62/?hl=en&img_index=1)
+
+[Tie & Loose](https://www.instagram.com/p/C79PyTTJzoj/?hl=en&img_index=1)
+
+# Kobe
+[Bar Le Salon](https://www.instagram.com/p/DBdlVqevhId/?hl=en&img_index=1)
+
 # Kumamoto
 [Yakuboku](https://www.instagram.com/p/DEUWThDxRtW/?hl=en&img_index=1)
+
+# Shizuoka
+[Blue Label](https://www.instagram.com/p/C79OaXNJJ3K/?hl=en&img_index=1)
+
+[No’age concentré](https://www.instagram.com/p/C79RlWzJIE8/?hl=en&img_index=1)
