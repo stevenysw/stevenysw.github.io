@@ -44,9 +44,11 @@
 [The Aubrey](https://www.instagram.com/p/DLXTWdcRkqT/?hl=en&img_index=1)
 
 # Taipei
+[Bar Mood](https://www.instagram.com/p/DM8gYC8hayV/?hl=en&img_index=1)
+
 [Draft Land](https://www.instagram.com/p/DBfpS2MxGIY/?hl=en)
 
-[Indulge Bistro](https://www.instagram.com/p/DBwBQKnxmNg/?hl=en&img_index=1)
+[Indulge Experimental Bistro](https://www.instagram.com/p/DBwBQKnxmNg/?hl=en&img_index=1)
 
 [The Public House](https://www.instagram.com/p/DBeUWjUvAlF/?hl=en&img_index=1)
 
