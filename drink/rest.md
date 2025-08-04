@@ -30,7 +30,21 @@
 
 [Slice of Life](https://www.instagram.com/p/DMwrgWNOYcb/?hl=en&img_index=1)
 
+# Vancouver, Canada
+[Botanist](https://www.instagram.com/p/C2CevH2rUOX/?hl=en&img_index=1)
+
 # Mexico City, Mexico
+[Baltra](https://www.instagram.com/p/C2DZInlSuzw/?hl=en&img_index=1)
+
+[Bar Las Brujas](https://www.instagram.com/p/C2FudusRd4w/?hl=en&img_index=1)
+
+[Handshake Speakeasy](https://www.instagram.com/p/C2Ceb6krOPs/?hl=en&img_index=1)
+
+[Licoreria Limantour](https://www.instagram.com/p/C2FI1_8rV4d/?hl=en&img_index=1)
+
+[Kaito del Valle](https://www.instagram.com/p/C2CsalOrxC-/?hl=en&img_index=1)
+
+[Rayo](https://www.instagram.com/p/C2CpbcpLKbZ/?hl=en&img_index=1)
 
 # Singapore
 [Atlas](https://www.instagram.com/p/DCo5oQ2PcZp/?hl=en&img_index=1)
@@ -38,6 +52,8 @@
 [Cat Bite Club](https://www.instagram.com/p/DCplfuUy8CO/?hl=en&img_index=1)
 
 [Jigger and Pony](https://www.instagram.com/p/DCpf9pATedO/?hl=en&img_index=1)
+
+[Manhattan](https://www.instagram.com/p/C2Cfw1uLq0H/?hl=en&img_index=1)
 
 [Native](https://www.instagram.com/p/DCpkRfryKap/?hl=en)
 
