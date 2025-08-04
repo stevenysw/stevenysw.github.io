@@ -1,7 +1,11 @@
 # Tokyo
+[Bar Benfiddich](https://www.instagram.com/p/C2CrINRLlrm/?hl=en&img_index=1)
+
 [Bar Capri](https://www.instagram.com/p/DM6x28Wx-zS/?hl=en&img_index=1)
 
 [Bar High Five](https://www.instagram.com/p/C3EzF2sOz5c/?hl=en&img_index=1)
+
+[Bar Hoshi](https://www.instagram.com/p/C2URNt3OGG3/?hl=en&img_index=1)
 
 [Bar Kisara](https://www.instagram.com/p/C4dYzNHLTMB/?hl=en&img_index=1)
 
@@ -11,6 +15,8 @@
 
 [Bar P.M.9](https://www.instagram.com/p/C4dXq-CL6Br/?hl=en&img_index=1)
 
+[Bar Tiare](https://www.instagram.com/p/C2Dq2hjyjXP/?hl=en&img_index=1)
+
 [Bar Wakabayashi](https://www.instagram.com/p/DHOmB7QyYLR/?hl=en&img_index=1)
 
 [Bvlgari Bar](https://www.instagram.com/p/DCsBrl8yOpP/?hl=en&img_index=1)
@@ -18,6 +24,8 @@
 [Folklore](https://www.instagram.com/p/DCr4znVSGSK/?hl=en&img_index=1)
 
 [Gas Light Eve](https://www.instagram.com/p/DLXQc1SxlNd/?hl=en&img_index=1)
+
+[Gold Bar](https://www.instagram.com/p/C2FupQhRdbs/?hl=en&img_index=1)
 
 [Higuruma](https://www.instagram.com/p/C79Nh-ApSRV/?hl=en&img_index=1)
 
@@ -29,11 +37,17 @@
 
 [Radio](https://www.instagram.com/p/C4dX4FWryt3/?hl=en&img_index=1)
 
+[Royal Bar](https://www.instagram.com/p/C2Cl-hAL1J9/?hl=en&img_index=1)
+
 [Samboa Ginza](https://www.instagram.com/p/C4dZe1ArQOF/?hl=en&img_index=1)
+
+[Sanlucar Bar](https://www.instagram.com/p/C2Ckmf6LCyD/?hl=en&img_index=1)
 
 [Star Bar Ginza](https://www.instagram.com/p/C4IYtRiL5jo/?hl=en&img_index=1)
 
 [The Bellwood](https://www.instagram.com/p/DEdHg5DyDMe/?hl=en&img_index=1)
+
+[The SG Club](https://www.instagram.com/p/C2CnpSpLsT9/?hl=en&img_index=1)
 
 [THESE](https://www.instagram.com/p/DAfjnZHyIuq/?hl=en&img_index=1)
 
@@ -49,11 +63,15 @@
 # Osaka
 [Bar Augusta](https://www.instagram.com/p/C4N3DsSLkiS/?hl=en&img_index=1)
 
+[Bar Juniper](https://www.instagram.com/p/C2UR-7Nu21f/?hl=en&img_index=1)
+
 [Bar Rarity](https://www.instagram.com/p/DHUD4eCyYCU/?hl=en&img_index=1)
 
 [Bar Ren](https://www.instagram.com/p/DHUDUaESykL/?hl=en&img_index=1)
 
 [Craftroom](https://www.instagram.com/p/DBfoKFJRIom/?hl=en&img_index=1)
+
+[Kaara](https://www.instagram.com/p/C2USl1mu9i1/?hl=en&img_index=1)
 
 [Kitashinchi Samboa](https://www.instagram.com/p/DBwDSdXR-Aj/?hl=en)
 
@@ -74,6 +92,15 @@
 
 [Nikka Bar Nanashima](https://www.instagram.com/p/DEX2gOLSu5y/?hl=en&img_index=1)
 
+# Sapporo
+[Bar Deux Ermitage](https://www.instagram.com/p/C2FuHouxEAR/?hl=en&img_index=1)
+
+[Bar nano.femto.](https://www.instagram.com/p/C2CtiBjLZOs/?hl=en&img_index=1)
+
+[Bar Proof](https://www.instagram.com/p/C2USU-bO6Vs/?hl=en&img_index=1)
+
+[Bar Yamazaki](https://www.instagram.com/p/C2CfTKNrXVc/?hl=en&img_index=1)
+
 # Akita
 [Bar 1980](https://www.instagram.com/p/DHLtxf1xsxm/?hl=en&img_index=1)
 
@@ -92,6 +119,8 @@
 [Soryu](https://www.instagram.com/p/C4NpgXfrzz1/?hl=en&img_index=1)
 
 # Kobe
+[Bar Laguna](https://www.instagram.com/p/C2Co1kzrh2L/?hl=en&img_index=1)
+
 [Bar Le Salon](https://www.instagram.com/p/DBdlVqevhId/?hl=en&img_index=1)
 
 # Kumamoto
@@ -101,3 +130,6 @@
 [Blue Label](https://www.instagram.com/p/C79OaXNJJ3K/?hl=en&img_index=1)
 
 [No’age concentré](https://www.instagram.com/p/C79RlWzJIE8/?hl=en&img_index=1)
+
+# Yufuin
+[Nicol’s Bar](https://www.instagram.com/p/C2CrdB1L-pQ/?hl=en&img_index=1)
