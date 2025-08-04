@@ -1,5 +1,11 @@
 # Bay Area
+[ABV](https://www.instagram.com/p/C2Fu-GvPoTK/?hl=en&img_index=1)
+
+[Bar Iris](https://www.instagram.com/p/C2FINOgrSvu/?hl=en&img_index=1)
+
 [Friends and Family](https://www.instagram.com/p/C9y8y5dx4fM/?hl=en&img_index=1)
+
+[Pacific Cocktail Haven](https://www.instagram.com/p/C2FtzoAxl0-/?hl=en&img_index=1)
 
 [Prizefighter](https://www.instagram.com/p/DKGrPjRRj7J/?hl=en&img_index=1)
 
@@ -15,25 +21,11 @@
 
 [Wildhawk](https://www.instagram.com/p/C9v5Gg2PlT2/?hl=en&img_index=1)
 
+# Chicago
+[Kumiko](https://www.instagram.com/p/C2Cr9q2rpWU/?hl=en&img_index=1)
+
 # Denver
 [Williams & Graham](https://www.instagram.com/p/C-rhXB9RNbe/?hl=en&img_index=1)
-
-# Los Angeles
-[Accomplice Bar](https://www.instagram.com/p/C9RTPeER0r_/?hl=en&img_index=1)
-
-[Bar Next Door](https://www.instagram.com/p/DJzeH8dSfn2/?hl=en&img_index=1)
-
-[Big Bar](https://www.instagram.com/p/DEW6VmyRVDs/?hl=en&img_index=1)
-
-[Dante](https://www.instagram.com/p/DHm6_1txriT/?hl=en&img_index=1)
-
-[Employees Only](https://www.instagram.com/p/C4ni1mGrT2D/?hl=en&img_index=1)
-
-[Melrose Umbrella Co.](https://www.instagram.com/p/DCn5ZLhxrQF/?hl=en&img_index=1)
-
-[Mirate](https://www.instagram.com/p/C7R0wbEpR7K/?hl=en&img_index=1)
-
-[The Spare Room](https://www.instagram.com/p/DFEBQBqylHN/?hl=en&img_index=1)
 
 # Las Vegas
 [Electra Cocktail Lounge](https://www.instagram.com/p/DIWd6cUJRZ6/?hl=en&img_index=1)
@@ -45,6 +37,27 @@
 [NoMad Bar](https://www.instagram.com/p/DH06beXpBsb/?hl=en&img_index=1)
 
 [The Golden Tiki](https://www.instagram.com/p/DCz_AgBy7HO/?hl=en&img_index=1)
+
+# Los Angeles
+[Accomplice Bar](https://www.instagram.com/p/C9RTPeER0r_/?hl=en&img_index=1)
+
+[Bar Next Door](https://www.instagram.com/p/DJzeH8dSfn2/?hl=en&img_index=1)
+
+[Big Bar](https://www.instagram.com/p/DEW6VmyRVDs/?hl=en&img_index=1)
+
+[Dante](https://www.instagram.com/p/DHm6_1txriT/?hl=en&img_index=1)
+
+[Death & Co.](https://www.instagram.com/p/C2FvWOlPDXK/?hl=en&img_index=1)
+
+[Employees Only](https://www.instagram.com/p/C4ni1mGrT2D/?hl=en&img_index=1)
+
+[Melrose Umbrella Co.](https://www.instagram.com/p/DCn5ZLhxrQF/?hl=en&img_index=1)
+
+[Mirate](https://www.instagram.com/p/C7R0wbEpR7K/?hl=en&img_index=1)
+
+[The Spare Room](https://www.instagram.com/p/DFEBQBqylHN/?hl=en&img_index=1)
+
+[Thunderbolt](https://www.instagram.com/p/C2Cob17rr0G/?hl=en&img_index=1)
 
 # New York
 [Angle's Share](https://www.instagram.com/p/C_KPTO5Rp2m/?hl=en&img_index=1)
