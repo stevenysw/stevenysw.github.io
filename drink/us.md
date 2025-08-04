@@ -55,6 +55,8 @@
 
 [Dante](https://www.instagram.com/p/C_KPg0Ax6_c/?hl=en&img_index=1)
 
+[Double Chicken Please](https://www.instagram.com/p/C79M8rKJ_5C/?hl=en&img_index=1)
+
 [Katana Kitten](https://www.instagram.com/p/C_KQSTfx792/?hl=en&img_index=1)
 
 [Mace](https://www.instagram.com/p/C_KQtRrxWk4/?hl=en&img_index=1)
