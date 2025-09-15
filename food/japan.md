@@ -53,7 +53,9 @@
 
 ☆☆ [Myojaku](https://www.instagram.com/p/DET9VxYRubB/?hl=en)
 
-☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/C0gRZzxuuEO/?hl=en)
+☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/DOhTB8rEo4n/?hl=en&img_index=1)
+
+☆☆ [PRISMA](https://www.instagram.com/p/DOiSez6juNu/?hl=en&img_index=1)
 
 ☆☆ [Ryuzu](https://www.instagram.com/p/C0v4QHTrTN4/?hl=en)
 
@@ -100,6 +102,8 @@
 ☆ [Obana](https://www.instagram.com/p/C0z0vQRPNgW/?hl=en)
 
 ☆ [Shinjuku Kappo Nakajima](https://www.instagram.com/p/C4iHG1YL478/?hl=en)
+
+☆ [Shunkeian Arakaki](https://www.instagram.com/p/DOggDd6ESGa/?hl=en&img_index=1)
 
 ☆ [Soba House Konjiki-Hototogisu](https://www.instagram.com/p/C0qrY1xuAfj/?hl=en)
 
