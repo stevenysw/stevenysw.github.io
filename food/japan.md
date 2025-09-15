@@ -258,6 +258,8 @@
 ☆ [TTHOAHISU](https://www.instagram.com/p/C2ZaVhSu-DD/?hl=en)
 
 # Kumamoto
+☆ [Sushi Nakamura](https://www.instagram.com/p/DOd_pQlkfNJ/?hl=en&img_index=1)
+
 ☆ [Sushi Senpachi](https://www.instagram.com/p/C0u1bAlP4_6/?hl=en)
 
 ☆ [Yoshoku no Mise Hashimoto](https://www.instagram.com/p/DJ07Zrhxr__/)
