@@ -81,6 +81,8 @@
 
 ☆ [Chukasoba Ginza Hachigou](https://www.instagram.com/p/C4lnF1MvdfY/?hl=en)
 
+☆ [Chuugokuhanten Fureika](https://www.instagram.com/p/DOeujNYkmzo/?hl=en&img_index=1)
+
 ☆ [Edomae Shinsaku](https://www.instagram.com/p/C2wcdvtOICO/?hl=en)
 
 ☆ [Imafuku](https://www.instagram.com/p/C4Ybml0P-Je/?hl=en)
@@ -180,6 +182,8 @@
 ☆☆☆ [Kikunoi Honten](https://www.instagram.com/p/C0vejqQLra0/?hl=en)
 
 ☆☆ [Ogata](https://www.instagram.com/p/C0kEMD-P3-Y/?hl=en)
+
+☆ [Tokuha Motonari](https://www.instagram.com/p/DOevmyVEkib/?hl=en&img_index=1)
 
 ☆ [Torisaki](https://www.instagram.com/p/DJ03IdSR-Jc/)
 
