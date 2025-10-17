@@ -15,6 +15,8 @@
 
 ☆☆☆ [Makimura](https://www.instagram.com/p/DEW4tJNxduO/?hl=en)
 
+☆☆☆ [Myojaku](https://www.instagram.com/p/DET9VxYRubB/?hl=en)
+
 ☆☆☆ [Nihonryori Ryugin](https://www.instagram.com/p/C0v162HOc_G/?hl=en)
 
 ☆☆☆ [Quintessence](https://www.instagram.com/p/C4TRd6VRTQE/?hl=en)
@@ -51,9 +53,9 @@
 
 ☆☆ [MAZ](https://www.instagram.com/p/DHIvvLJxF6q/?hl=en)
 
-☆☆ [Myojaku](https://www.instagram.com/p/DET9VxYRubB/?hl=en)
-
 ☆☆ [Nihonbashi Kakigaracho Sugita](https://www.instagram.com/p/DOhTB8rEo4n/?hl=en&img_index=1)
+
+☆☆ [Nishiazabu Sushi Shin](https://www.instagram.com/p/C4aeufyrqLJ/?hl=en)
 
 ☆☆ [PRISMA](https://www.instagram.com/p/DOiSez6juNu/?hl=en&img_index=1)
 
@@ -96,8 +98,6 @@
 ☆ [Mikawa Zezankyo](https://www.instagram.com/p/C0uzGqKPJbU/?hl=en)
 
 ☆ [Miyasaka](https://www.instagram.com/p/C4ahQXmrQEB/?hl=en)
-
-☆ [Nishiazabu Sushi Shin](https://www.instagram.com/p/C4aeufyrqLJ/?hl=en)
 
 ☆ [Nodaiwa Azabu Iikura Honten](https://www.instagram.com/p/C4dF_kRLxBb/?hl=en)
 
