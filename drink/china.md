@@ -48,7 +48,19 @@
 
 [Draft Land](https://www.instagram.com/p/DBfpS2MxGIY/?hl=en)
 
+[HiBoRu](https://www.instagram.com/p/DP6RRxVkae1/?hl=en&img_index=1)
+
+[Hide Out](https://www.instagram.com/p/DP6R0Rqka2P/?hl=en&img_index=1)
+
 [Indulge Experimental Bistro](https://www.instagram.com/p/DBwBQKnxmNg/?hl=en&img_index=1)
+
+[Inge's Bar](https://www.instagram.com/p/DP6RoFqkcL6/?hl=en&img_index=1)
+
+[Lab](https://www.instagram.com/p/DP6PgGJEZGw/?hl=en&img_index=1)
+
+[Staff Only Club](https://www.instagram.com/p/DP6SIzkkRyc/?hl=en&img_index=1)
+
+[Tei by Obond](https://www.instagram.com/p/DP6Pwr5kSrg/?hl=en&img_index=1)
 
 [The Public House](https://www.instagram.com/p/DBeUWjUvAlF/?hl=en&img_index=1)
 
