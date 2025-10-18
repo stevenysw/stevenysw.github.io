@@ -45,6 +45,8 @@
 
 [Samboa Ginza](https://www.instagram.com/p/C4dZe1ArQOF/?hl=en&img_index=1)
 
+[Sakurai Tea Shop](https://www.instagram.com/p/DOhHcE4ki06/?hl=en&img_index=1)
+
 [Sanlucar Bar](https://www.instagram.com/p/C2Ckmf6LCyD/?hl=en&img_index=1)
 
 [Star Bar Ginza](https://www.instagram.com/p/C4IYtRiL5jo/?hl=en&img_index=1)
@@ -70,6 +72,8 @@
 [Bar Juniper](https://www.instagram.com/p/C2UR-7Nu21f/?hl=en&img_index=1)
 
 [Bar K](https://www.instagram.com/p/DM8XGG4yadl/?hl=en&img_index=1)
+
+[Bar Masuda](https://www.instagram.com/p/DOeuVlSEqKD/?hl=en&img_index=1)
 
 [Bar Rarity](https://www.instagram.com/p/DHUD4eCyYCU/?hl=en&img_index=1)
 
