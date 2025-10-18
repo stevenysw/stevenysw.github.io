@@ -13,6 +13,8 @@
 
 ☆☆ [Canton 8](https://www.instagram.com/p/C0ddV7qOfmn/?hl=en)
 
+☆☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
+
 ☆☆ [Imperial Treasure](https://www.instagram.com/p/C4TOrKIxYqc/?hl=en)
 
 ☆☆ [Yi Long Court](https://www.instagram.com/p/C4dXH7HLj-7/?hl=en)
@@ -25,8 +27,6 @@
 
 ☆ [Fu 1088](https://www.instagram.com/p/DJ08S2Rx2Nu/)
 
-☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
-
 ☆ [Gastro Esthetics at DaDong](https://www.instagram.com/p/C4eGYYfS2ge/?hl=en)
 
 ☆ [Il Ristorante - Niko Romito](https://www.instagram.com/p/C4bEw-ARXJz/?hl=en)
@@ -38,8 +38,6 @@
 ☆ [Lao Zheng Xing](https://www.instagram.com/p/C4iJjYKrMb4/?hl=en)
 
 ☆ [Le Comptoir de Pierre Gagnaire](https://www.instagram.com/p/C4kwbHLrRrX/?hl=en)
-
-☆ Lei Garden
 
 ☆ [Ling Long](https://www.instagram.com/p/DBawSo5RKkv/?hl=en)
 
@@ -91,6 +89,8 @@
 ☆ [Jin Sha](https://www.instagram.com/p/C0vbB0WLPRM/?hl=en)
 
 # Hong Kong
+☆☆☆ [Amber](https://www.instagram.com/p/DLXQAQ3RdOm/?hl=en&img_index=1)
+
 ☆☆☆ [Caprice](https://www.instagram.com/p/C4Yd0Q9vu7C/?hl=en)
 
 ☆☆☆ [Forum Restaurant](https://www.instagram.com/p/C0o1Db9LGS5/?hl=en)
@@ -138,6 +138,8 @@
 ☆ [MUME](https://www.instagram.com/p/C0dewZuu0ch/?hl=en)
 
 ☆ [Tempura Motoichi](https://www.instagram.com/p/DP0ygXYEdQu/?hl=en&img_index=1)
+
+☆ [The Guest House](https://www.instagram.com/p/DP6O2X_kVXR/?hl=en&img_index=1)
 
 ☆ [T+T](https://www.instagram.com/p/DP0x2DoEcT1/?hl=en&img_index=1)
 
