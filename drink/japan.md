@@ -3,6 +3,8 @@
 
 [Bar Capri](https://www.instagram.com/p/DM6x28Wx-zS/?hl=en&img_index=1)
 
+[Bar Four Seasons](https://www.instagram.com/p/DOd_WAgEZfX/?hl=en&img_index=1)
+
 [Bar High Five](https://www.instagram.com/p/C3EzF2sOz5c/?hl=en&img_index=1)
 
 [Bar Hoshi](https://www.instagram.com/p/C2URNt3OGG3/?hl=en&img_index=1)
@@ -133,6 +135,11 @@
 [Bar Laguna](https://www.instagram.com/p/C2Co1kzrh2L/?hl=en&img_index=1)
 
 [Bar Le Salon](https://www.instagram.com/p/DBdlVqevhId/?hl=en&img_index=1)
+
+# Kagoshima
+[Bar Obara](https://www.instagram.com/p/DOhTMPIkl0E/?hl=en&img_index=1)
+
+[Bar Stinger](https://www.instagram.com/p/DOgWFiwkZWU/?hl=en&img_index=1)
 
 # Kumamoto
 [Yakuboku](https://www.instagram.com/p/DEUWThDxRtW/?hl=en&img_index=1)
