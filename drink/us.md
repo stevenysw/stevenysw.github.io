@@ -30,7 +30,7 @@
 [Williams & Graham](https://www.instagram.com/p/C-rhXB9RNbe/?hl=en&img_index=1)
 
 # Las Vegas
-[Electra Cocktail Lounge](https://www.instagram.com/p/DIWd6cUJRZ6/?hl=en&img_index=1)
+[Electra Cocktail Club](https://www.instagram.com/p/DIWd6cUJRZ6/?hl=en&img_index=1)
 
 [Herbs & Rye](https://www.instagram.com/p/DDQNbU0SvIG/?hl=en&img_index=1)
 
