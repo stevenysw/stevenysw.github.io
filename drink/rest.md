@@ -33,6 +33,8 @@
 # Vancouver, Canada
 [Botanist](https://www.instagram.com/p/C2CevH2rUOX/?hl=en&img_index=1)
 
+[The Keefer Bar](https://www.instagram.com/p/DNPb45txHRG/?hl=en&img_index=1)
+
 # Mexico City, Mexico
 [Baltra](https://www.instagram.com/p/C2DZInlSuzw/?hl=en&img_index=1)
 
