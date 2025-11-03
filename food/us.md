@@ -81,6 +81,8 @@
 
 ☆ [Kin Khao](https://www.instagram.com/p/C4kwMMErqCu/?hl=en)
 
+☆ [Localis]()
+
 ☆ [Luce](https://www.instagram.com/p/C0u_cwLpO3R/?hl=en)
 
 ☆ [Madcap](https://www.instagram.com/p/C4iF3FjrVCI/?hl=en)
@@ -349,6 +351,17 @@
 ☆ [DJT](https://www.instagram.com/p/DJ063b5R8kU/)
 
 ☆ [Wing Lei](https://www.instagram.com/p/DC-T3A6yjAy/?hl=en)
+
+# Texas
+☆ [InterStellar BBQ](https://www.instagram.com/p/DQZadGjEVvl/?hl=en)
+
+☆ [la Barbecue](https://www.instagram.com/p/DQZao9xEeN9/?hl=en)
+
+☆ [LeRoy and Lewis BBQ](https://www.instagram.com/p/DQad6ZtAfpH/?hl=en&img_index=1)
+
+☆ [Mixtli](https://www.instagram.com/p/DQabs52AXZA/?hl=en&img_index=1)
+
+☆ [Olamaie](https://www.instagram.com/p/DQadtfKgakD/?hl=en&img_index=1)
 
 # Florida
 ☆ [Capa](https://www.instagram.com/p/C0q3UszLXhn/?hl=en)
