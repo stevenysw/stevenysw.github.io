@@ -81,7 +81,7 @@
 
 ☆ [Kin Khao](https://www.instagram.com/p/C4kwMMErqCu/?hl=en)
 
-☆ [Localis]()
+☆ [Localis](https://www.instagram.com/p/DQk2jyfET-Q/?hl=en&img_index=1)
 
 ☆ [Luce](https://www.instagram.com/p/C0u_cwLpO3R/?hl=en)
 
