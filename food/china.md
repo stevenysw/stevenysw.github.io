@@ -17,6 +17,8 @@
 
 ☆☆ [Imperial Treasure](https://www.instagram.com/p/C4TOrKIxYqc/?hl=en)
 
+☆☆ [The House of Rong](https://www.instagram.com/p/DSOhgUxEb5p/?img_index=1)
+
 ☆☆ [Yi Long Court](https://www.instagram.com/p/C4dXH7HLj-7/?hl=en)
 
 ☆ [Amazing Chinese Cuisine](https://www.instagram.com/p/DB07DyLRCv0/?hl=en)
@@ -60,6 +62,8 @@
 ☆ [Ren He Guan](https://www.instagram.com/p/C4X6vrpR7nw/?hl=en)
 
 ☆ [Seventh Son](https://www.instagram.com/p/C4i6rLMP_7s/?hl=en)
+
+☆ [SOLE](https://www.instagram.com/p/DSCAIC-APFA/?img_index=1)
 
 ☆ [T'ang Court](https://www.instagram.com/p/DAfiVwrSNxF/?hl=en)
 
