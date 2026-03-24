@@ -53,6 +53,8 @@
 
 ☆ [Moose](https://www.instagram.com/p/DTSyJ-SlIqI/?img_index=1)
 
+☆ [Narisawa Shanghai](https://www.instagram.com/p/DSAVnuRkTLV/?img_index=1)
+
 ☆ [Obscura](https://www.instagram.com/p/C2VsO00SSSF/?hl=en)
 
 ☆ [Oriental Sense & Palate](https://www.instagram.com/p/DB07rVax2AK/?hl=en)
