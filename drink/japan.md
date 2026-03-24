@@ -9,6 +9,8 @@
 
 [Bar Hoshi](https://www.instagram.com/p/C2URNt3OGG3/?hl=en&img_index=1)
 
+[Bar Ishinohana](https://www.instagram.com/p/DTYTa-hjwZ1/?img_index=1)
+
 [Bar Kisara](https://www.instagram.com/p/C4dYzNHLTMB/?hl=en&img_index=1)
 
 [Bar Odin](https://www.instagram.com/p/DM8WyhaSuuS/?hl=en&img_index=1)
@@ -19,7 +21,11 @@
 
 [Bar P.M.9](https://www.instagram.com/p/C4dXq-CL6Br/?hl=en&img_index=1)
 
+[Bar Shusendo](https://www.instagram.com/p/DTYRKaRD4g8/?img_index=1)
+
 [Bar Tiare](https://www.instagram.com/p/C2Dq2hjyjXP/?hl=en&img_index=1)
+
+[Bar Tram](https://www.instagram.com/p/DTYTstwj5Mn/?img_index=1)
 
 [Bar Wakabayashi](https://www.instagram.com/p/DHOmB7QyYLR/?hl=en&img_index=1)
 
@@ -99,6 +105,8 @@
 
 [Bar Curacao](https://www.instagram.com/p/DWEZUlolNla/?img_index=1)
 
+[Bar Neat](https://www.instagram.com/p/DTYSff_D_WP/?img_index=1)
+
 [Kreis](https://www.instagram.com/p/DM8W6xQSZj-/?hl=en&img_index=1)
 
 # Fukuoka
@@ -125,6 +133,8 @@
 [Bar Leverre](https://www.instagram.com/p/DHIyWhBRUJ2/?hl=en&img_index=1)
 
 [Lady](https://www.instagram.com/p/DHUDqIry6Gr/?hl=en&img_index=1)
+
+[MonnShine](https://www.instagram.com/p/DTYT34UgSXh/?img_index=1)
 
 # Miyazaki
 [Nomi no Ichi](https://www.instagram.com/p/C79NLJWpDxH/?hl=en&img_index=1)
@@ -157,5 +167,8 @@
 
 [No’age concentré](https://www.instagram.com/p/C79RlWzJIE8/?hl=en&img_index=1)
 
-# Yufuin
+# Oita
 [Nicol’s Bar](https://www.instagram.com/p/C2CrdB1L-pQ/?hl=en&img_index=1)
+
+# Tochigi
+[Bar Chamonix](https://www.instagram.com/p/DTYUEo8gc_o/?img_index=1)
