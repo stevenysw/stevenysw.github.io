@@ -125,6 +125,8 @@
 [The Long Island Bar](https://www.instagram.com/p/DHLqpP6x25d/?hl=en)
 
 # San Diego
+[Polite Provisions](https://www.instagram.com/p/DRrjc1vEVZp/?img_index=1)
+
 [Raised by Wolves](https://www.instagram.com/p/DRw-z2SEXad/?img_index=1)
 
 # Washington DC
