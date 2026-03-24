@@ -9,7 +9,7 @@
 
 ☆☆ [8 1/2 Otto E Mezzo BOMBANA](https://www.instagram.com/p/C0qpVCpuNSh/?hl=en)
 
-☆☆ [Da Vittorio Shanghai](https://www.instagram.com/p/C4U_0W3uVhg/?hl=en)
+☆☆ [Da Vittorio Shanghai](https://www.instagram.com/p/DTVYL3jEb1Y/?img_index=1)
 
 ☆☆ [Canton 8](https://www.instagram.com/p/C0ddV7qOfmn/?hl=en)
 
