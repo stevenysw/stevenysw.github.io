@@ -39,6 +39,8 @@
 
 [Mixiology Salon](https://www.instagram.com/p/DC8uffSRX8d/?hl=en&img_index=1)
 
+[Punch Room](https://www.instagram.com/p/DTVh-RSkZ_Q/?img_index=1)
+
 [Radio](https://www.instagram.com/p/C4dX4FWryt3/?hl=en&img_index=1)
 
 [Royal Bar](https://www.instagram.com/p/C2Cl-hAL1J9/?hl=en&img_index=1)
@@ -94,6 +96,8 @@
 
 # Nagoya
 [Bar Barns](https://www.instagram.com/p/DEUVTaxxxDD/?hl=en&img_index=1)
+
+[Bar Curacao](https://www.instagram.com/p/DWEZUlolNla/?img_index=1)
 
 [Kreis](https://www.instagram.com/p/DM8W6xQSZj-/?hl=en&img_index=1)
 
