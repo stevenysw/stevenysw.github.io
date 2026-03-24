@@ -16,6 +16,8 @@
 
 [Prizefighter](https://www.instagram.com/p/DKGrPjRRj7J/?hl=en&img_index=1)
 
+[Shoji](https://www.instagram.com/p/DTZ4T5IFGBa/?img_index=1)
+
 [Smuggler's Cove](https://www.instagram.com/p/C83uOxWO1Qy/?hl=en&img_index=1)
 
 [Tommy's](https://www.instagram.com/p/C_mhj5Ax5uD/?hl=en)
