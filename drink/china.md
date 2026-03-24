@@ -9,6 +9,8 @@
 
 [Papaya Bar](https://www.instagram.com/p/DCoKve5RCMI/?hl=en&img_index=1)
 
+[Pony Up](https://www.instagram.com/p/DSAWiLgEfW-/?img_index=1)
+
 [Punch Room](https://www.instagram.com/p/DM8d75Ryxey/?hl=en)
 
 [Root Down](https://www.instagram.com/p/DBv9lAVxaPt/?hl=en&img_index=1)
