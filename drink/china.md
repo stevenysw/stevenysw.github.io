@@ -1,4 +1,8 @@
 # Shanghai
+[Bar Leone](https://www.instagram.com/p/DTTZnD4EtiJ/?img_index=1)
+
+[Coa Shanghai](https://www.instagram.com/p/DSOctPWkT4D/?img_index=1)
+
 [Epic](https://www.instagram.com/p/C2DZg46yh8I/?hl=en&img_index=1)
 
 [Healer](https://www.instagram.com/p/DCmODjSPcxb/?hl=en&img_index=1)
@@ -20,6 +24,8 @@
 [The Ritz Bar](https://www.instagram.com/p/DCnG3-Xy6KT/?hl=en)
 
 [Union Trading Company](https://www.instagram.com/p/C2Cpv7preSu/?hl=en&img_index=1)
+
+[Zuk Bar](https://www.instagram.com/p/DSCBBcsgDeG/?img_index=1)
 
 # Guangzhou
 [Hope & Sesame](https://www.instagram.com/p/DLTsDGHRbl9/?hl=en&img_index=1)
