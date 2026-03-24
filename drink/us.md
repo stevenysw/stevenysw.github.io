@@ -108,8 +108,31 @@
 # Washington DC
 [Allegory](https://www.instagram.com/p/DHzTBS9Sm04/?hl=en&img_index=1)
 
+[barmini](https://www.instagram.com/p/DTrPzYmEVRD/?img_index=1)
+
+[Jack Rose Dining Salon](https://www.instagram.com/p/DVossNLkRbA/?img_index=1)
+
 [Service Bar](https://www.instagram.com/p/DHzJd6zyNYE/?hl=en&img_index=1)
 
 [Silver Lyan](https://www.instagram.com/p/DHzSWpGyqyB/?hl=en&img_index=1)
 
 [The Green Zone](https://www.instagram.com/p/DHzKEtISXtq/?hl=en&img_index=1)
+
+# New Orleans
+[Beachbum Berry’s Latitude 29](https://www.instagram.com/p/DVopHthkvgk/?img_index=1)
+
+[Cure](https://www.instagram.com/p/DVe-EvkEVZA/?img_index=1)
+
+[Erin Rose](https://www.instagram.com/p/DVgHRPbE2Xa/)
+
+[French 75 Bar](https://www.instagram.com/p/DVopg4jEgHa/?img_index=1)
+
+[Jewel of the South](https://www.instagram.com/p/DVe852_Dwac/?img_index=1)
+
+[Manolito](https://www.instagram.com/p/DVolCvWjzmT/?img_index=1)
+
+[Peychaud’s at The Celestine](https://www.instagram.com/p/DVULehVkV6m/?img_index=1)
+
+[Salon Salon](https://www.instagram.com/p/DVoqTc3EjkP/?img_index=1)
+
+[The Will & The Way](https://www.instagram.com/p/DVh_y6zFIYB/?img_index=1)
