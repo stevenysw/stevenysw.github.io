@@ -9,9 +9,11 @@
 
 ☆☆ [8 1/2 Otto E Mezzo BOMBANA](https://www.instagram.com/p/C0qpVCpuNSh/?hl=en)
 
-☆☆ [Da Vittorio Shanghai](https://www.instagram.com/p/DTVYL3jEb1Y/?img_index=1)
+☆☆ [Bao Li Xuan](https://www.instagram.com/p/DRw7BJ7EbDt/?img_index=1)
 
 ☆☆ [Canton 8](https://www.instagram.com/p/C0ddV7qOfmn/?hl=en)
+
+☆☆ [Da Vittorio Shanghai](https://www.instagram.com/p/DTVYL3jEb1Y/?img_index=1)
 
 ☆☆ [Fu He Hui](https://www.instagram.com/p/C0gWAZJue3A/?hl=en)
 
