@@ -201,6 +201,9 @@
 
 ☆ [Setsugekka](https://www.instagram.com/p/C4eBajeSBdl/?hl=en)
 
+# Mie
+☆☆☆ [Komada](https://www.instagram.com/p/DTSvKhaFGlQ/?img_index=1)
+
 # Ishikawa
 ☆☆ [MAKINONCÎ](https://www.instagram.com/p/C4NqKGxLvjr/?hl=en)
 
