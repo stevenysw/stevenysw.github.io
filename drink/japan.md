@@ -162,6 +162,8 @@
 [Bar Stinger](https://www.instagram.com/p/DOgWFiwkZWU/?hl=en&img_index=1)
 
 # Kumamoto
+[Bar States](https://www.instagram.com/p/DP8NNVYjgoe/?img_index=1)
+
 [Yakuboku](https://www.instagram.com/p/DEUWThDxRtW/?hl=en&img_index=1)
 
 # Shizuoka
