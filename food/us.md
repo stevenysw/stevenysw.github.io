@@ -343,6 +343,10 @@
 
 ☆☆ [minibar](https://www.instagram.com/p/DHw12t8ScH4/?hl=en)
 
+☆ [Imperfecto](https://www.instagram.com/p/DTrRCjjEeEY/?img_index=1)
+
+☆ [Rania](https://www.instagram.com/p/DTrQjXJkceT/?img_index=1)
+
 # Las Vegas
 ☆☆☆ [Joël Robuchon](https://www.instagram.com/p/DC0BAcMyf4N/?hl=en)
 
@@ -351,6 +355,11 @@
 ☆ [DJT](https://www.instagram.com/p/DJ063b5R8kU/)
 
 ☆ [Wing Lei](https://www.instagram.com/p/DC-T3A6yjAy/?hl=en)
+
+# New Orleans
+☆☆ [Emeril's](https://www.instagram.com/p/DVSYneADH7w/?img_index=1)
+
+☆ [Saint-Germain](https://www.instagram.com/p/DVe7w2uj3HR/?img_index=1)
 
 # Texas
 ☆ [InterStellar BBQ](https://www.instagram.com/p/DQZadGjEVvl/?hl=en)
