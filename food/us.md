@@ -178,6 +178,8 @@
 
 ☆ [Holbox](https://www.instagram.com/p/C0vzHxFO1GM/?hl=en)
 
+☆ [[Jeune et Jolie](https://www.instagram.com/p/DRrWipOEQd6/?img_index=1)
+
 ☆ [Kali](https://www.instagram.com/p/C4niuq1LuS9/?hl=en)
 
 ☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
@@ -185,6 +187,8 @@
 ☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
 
 ☆ [Le Comptoir](https://www.instagram.com/p/C4kruvRLgXi/?hl=en)
+
+☆ [Lilo](https://www.instagram.com/p/DRrhlzIkfKL/?img_index=1)
 
 ☆ [Manzke](https://www.instagram.com/p/C0v095dOihy/?hl=en)
 
@@ -371,6 +375,11 @@
 ☆ [Mixtli](https://www.instagram.com/p/DQabs52AXZA/?hl=en&img_index=1)
 
 ☆ [Olamaie](https://www.instagram.com/p/DQadtfKgakD/?hl=en&img_index=1)
+
+# Nashville
+☆ [Locust](https://www.instagram.com/p/DQ5wRSzDL5I/?img_index=1)
+
+☆ [The Catbird Seat](https://www.instagram.com/p/DQ5vqYeDB_a/?img_index=1)
 
 # Florida
 ☆ [Capa](https://www.instagram.com/p/C0q3UszLXhn/?hl=en)
