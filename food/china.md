@@ -19,6 +19,8 @@
 
 ☆☆ [Yi Long Court](https://www.instagram.com/p/C4dXH7HLj-7/?hl=en)
 
+☆ [Amazing Chinese Cuisine](https://www.instagram.com/p/DB07DyLRCv0/?hl=en)
+
 ☆ [Cheng Long Hang](https://www.instagram.com/p/C4qk3DNvBum/?hl=en)
 
 ☆ [DaDong](https://www.instagram.com/p/C4ku-xprxeF/?hl=en)
@@ -47,7 +49,7 @@
 
 ☆ [Meet the Bund](https://www.instagram.com/p/C1cWPr4usCp/?hl=en)
 
-☆ [Moose](https://www.instagram.com/p/DB07DyLRCv0/?hl=en)
+☆ [Moose](https://www.instagram.com/p/DTSyJ-SlIqI/?img_index=1)
 
 ☆ [Obscura](https://www.instagram.com/p/C2VsO00SSSF/?hl=en)
 
