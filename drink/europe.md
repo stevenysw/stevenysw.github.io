@@ -51,7 +51,7 @@
 
 [Rossio Gastrobar](https://www.instagram.com/p/DZIK-dPlHHG/?img_index=1)
 
-[Toca da Raposa,](https://www.instagram.com/p/DZJK3eemV97/?img_index=1)
+[Toca da Raposa](https://www.instagram.com/p/DZJK3eemV97/?img_index=1)
 
 # Barcelona, Spain
 [Boadas](https://www.instagram.com/p/DZMTrOaFPdE/?img_index=1)
