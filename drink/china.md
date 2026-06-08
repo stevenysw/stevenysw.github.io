@@ -54,6 +54,8 @@
 # Taipei
 [Bar Mood](https://www.instagram.com/p/DM8gYC8hayV/?hl=en&img_index=1)
 
+[Bar Otani](https://www.instagram.com/p/DXdO4IsFHbA/?img_index=1)
+
 [Draft Land](https://www.instagram.com/p/DBfpS2MxGIY/?hl=en)
 
 [HiBoRu](https://www.instagram.com/p/DP6RRxVkae1/?hl=en&img_index=1)
