@@ -37,8 +37,6 @@
 
 ☆ [7 Adams](https://www.instagram.com/p/DAfkOUmyzLZ/?hl=en)
 
-☆ [715 Sushi](https://www.instagram.com/p/C4TQYPExz83/?hl=en)
-
 ☆ [ADEGA](https://www.instagram.com/p/C4kw04crZI_/?hl=en)
 
 ☆ [Angler](https://www.instagram.com/p/C4gLOgcxCcZ/?hl=en)
@@ -157,6 +155,8 @@
 ☆☆ [Sushi Ginza Onodera](https://www.instagram.com/p/C0ySOi-O2Qe/?hl=en)
 
 ☆☆ [Verspertine](https://www.instagram.com/p/C6Ze0gLq-Xc/?igsh=NTc4MTIwNjQ2YQ==)
+
+☆ [715 Sushi](https://www.instagram.com/p/C4TQYPExz83/?hl=en)
 
 ☆ [Bistro Na](https://www.instagram.com/p/C4dXaz-LWzl/?hl=en)
 
