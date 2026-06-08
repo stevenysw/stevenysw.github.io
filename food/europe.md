@@ -127,6 +127,8 @@
 
 ☆☆ [Belcanto](https://www.instagram.com/p/C0gR_VXu8No/?hl=en)
 
+☆ [Cura](https://www.instagram.com/p/DZG-FC6lKif/?img_index=1)
+
 # Slovenia
 ☆☆☆ [Hiša Franko](https://www.instagram.com/p/C6uZx-iKOlm/?hl=en)
 
