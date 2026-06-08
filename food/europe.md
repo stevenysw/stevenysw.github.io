@@ -139,6 +139,8 @@
 
 ☆☆☆ [Azurmendi](https://www.instagram.com/p/C4V6bCXRXBD/?hl=en)
 
+☆☆☆ [Cenador de Amós](https://www.instagram.com/p/DYxy5_PEbo9/?img_index=1)
+
 ☆☆☆ [Cocina Hermanos Torres](https://www.instagram.com/p/C0jHIV2ryhY/?hl=en)
 
 ☆☆☆ [Disfrutar](https://www.instagram.com/p/DZA9WM-kRcf/?img_index=1)
@@ -147,9 +149,13 @@
 
 ☆☆☆ [Lasarte](https://www.instagram.com/p/DZJIkSJmTcw/?img_index=1)
 
+☆☆☆ [Martín Berasategui](https://www.instagram.com/p/DZADIzhEciv/?img_index=1)
+
 ☆☆☆ [Quique Dacosta](https://www.instagram.com/p/C61E2I0L6TA/?hl=en)
 
 ☆☆ [Angle](https://www.instagram.com/p/C4TS7Pwx4We/?hl=en)
+
+☆☆☆ [DSTAgE](https://www.instagram.com/p/DYx17KeimO3/?img_index=1)
 
 ☆☆ [El Poblet](https://www.instagram.com/p/C6uZ75VK3rQ/?hl=en)
 
