@@ -18,6 +18,10 @@
 
 ☆ [Hexagon](https://www.instagram.com/p/DMwucUDuoiY/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
 
+☆ [iDen & Quanjude Beijing Duck House](https://www.instagram.com/p/DXbSqkRlXU3/?img_index=1)
+
+☆ [Published on Main](https://www.instagram.com/p/DXePyOAG3X5/?img_index=1)
+
 ☆ [Quetzal](https://www.instagram.com/p/DMwKGSmSjTI/?hl=en&img_index=1)
 
 ☆ [St. Lawrence](https://www.instagram.com/p/DOggvzGEWcY/?hl=en&img_index=1)
