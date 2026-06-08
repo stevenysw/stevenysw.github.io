@@ -137,9 +137,15 @@
 
 ☆☆☆ [Taïrroir](https://www.instagram.com/p/DP3pFWhkR9X/?hl=en&img_index=1)
 
+☆☆ [logy](https://www.instagram.com/p/DXaY5rWj4Fn/?img_index=1)
+
 ☆☆ [Molino de Urdaniz](https://www.instagram.com/p/DBfqCCDRK1l/?hl=en)
 
+☆☆ [Mudan](https://www.instagram.com/p/DXbUb4mleBy/?img_index=1)
+
 ☆☆ [RAW](https://www.instagram.com/p/DBax4xixDtt/?hl=en)
+
+☆ [Frassi](https://www.instagram.com/p/DXbOv68FSN2/?img_index=1)
 
 ☆ [Mipon](https://www.instagram.com/p/DBbqAmKv_l3/?hl=en)
 
@@ -152,6 +158,8 @@
 ☆ [The Guest House](https://www.instagram.com/p/DP6O2X_kVXR/?hl=en&img_index=1)
 
 ☆ [T+T](https://www.instagram.com/p/DP0x2DoEcT1/?hl=en&img_index=1)
+
+☆ [Ya Ge](https://www.instagram.com/p/DXeSQ2fm-Kv/?img_index=1)
 
 # Taichung
 ☆☆☆ [JL Studio](https://www.instagram.com/p/DBawymNxmJn/?hl=en)
