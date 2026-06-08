@@ -14,11 +14,15 @@
 
 ☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
 
+☆ [Barbara](https://www.instagram.com/p/DWk9GJcFEr0/?img_index=1)
+
 ☆ [Burdock & Co](https://www.instagram.com/p/C4iIgPCLQiU/?hl=en)
 
 ☆ [Hexagon](https://www.instagram.com/p/DMwucUDuoiY/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
 
 ☆ [iDen & Quanjude Beijing Duck House](https://www.instagram.com/p/DXbSqkRlXU3/?img_index=1)
+
+☆ [Kissa Tanto](https://www.instagram.com/p/DWk8uOiFGeV/?img_index=1)
 
 ☆ [Published on Main](https://www.instagram.com/p/DXePyOAG3X5/?img_index=1)
 
