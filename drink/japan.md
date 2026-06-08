@@ -85,6 +85,8 @@
 
 [Bar Masuda](https://www.instagram.com/p/DOeuVlSEqKD/?hl=en&img_index=1)
 
+[Bar Nayuta](https://www.instagram.com/p/DYbqfX9lYQS/?img_index=1)
+
 [Bar Rarity](https://www.instagram.com/p/DHUD4eCyYCU/?hl=en&img_index=1)
 
 [Bar Ren](https://www.instagram.com/p/DHUDUaESykL/?hl=en&img_index=1)
