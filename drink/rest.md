@@ -33,6 +33,16 @@
 # Vancouver, Canada
 [Botanist](https://www.instagram.com/p/C2CevH2rUOX/?hl=en&img_index=1)
 
+[Grapes & Soda](https://www.instagram.com/p/DXiUIrCCRsc/?img_index=1)
+
+[Laowai](https://www.instagram.com/p/DXiTwv3iW_Y/?img_index=1)
+
+[Meo](https://www.instagram.com/p/DXfMwhgEsiZ/?img_index=1)
+
+[Mount Pleasant Vintage & Provisions](https://www.instagram.com/p/DXeR9j4mzAF/?img_index=1)
+
+[Prophecy](https://www.instagram.com/p/DXeQQbnG4Im/?img_index=1)
+
 [The Keefer Bar](https://www.instagram.com/p/DNPb45txHRG/?hl=en&img_index=1)
 
 # Mexico City, Mexico
