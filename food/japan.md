@@ -280,6 +280,8 @@
 
 ☆☆☆ [Moliere](https://www.instagram.com/p/C0vz89Xu_3q/?hl=en)
 
+☆☆☆ [Sushi Miyakawa](https://www.instagram.com/p/DW7X8pIEbHB/?img_index=1)
+
 ☆☆ [Michel Bras Toya Japon](https://www.instagram.com/p/C4YcWd1PSKK/?hl=en)
 
 ☆☆ [Sushisai Wakichi](https://www.instagram.com/p/C0-PG4OvazS/?hl=en)
