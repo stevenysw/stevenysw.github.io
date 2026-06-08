@@ -149,6 +149,8 @@
 
 ☆☆☆ [DiverXO](https://www.instagram.com/p/DZFiHQfFI4f/?img_index=1)
 
+☆☆☆ [El Cellar De Can Roca](https://www.instagram.com/p/DZG2TF-FG_a/?img_index=1)
+
 ☆☆☆ [Lasarte](https://www.instagram.com/p/DZJIkSJmTcw/?img_index=1)
 
 ☆☆☆ [Martín Berasategui](https://www.instagram.com/p/DZADIzhEciv/?img_index=1)
