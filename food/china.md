@@ -98,6 +98,11 @@
 # Hangzhou
 ☆ [Jin Sha](https://www.instagram.com/p/C0vbB0WLPRM/?hl=en)
 
+# Taizhou
+☆ [Lao Bian Jiu Jia](https://www.instagram.com/p/DTSug63FFCn/?img_index=1)
+
+☆ [Xin Rong Ji](https://www.instagram.com/p/DTS0jZNFFo8/?img_index=1)
+
 # Hong Kong
 ☆☆☆ [Amber](https://www.instagram.com/p/DLXQAQ3RdOm/?hl=en&img_index=1)
 
