@@ -61,6 +61,8 @@
 
 [Star Bar Ginza](https://www.instagram.com/p/C4IYtRiL5jo/?hl=en&img_index=1)
 
+[Suntory Lounge Eagle](https://www.instagram.com/p/DXbFcKTnGVk/?img_index=1)
+
 [The Bellwood](https://www.instagram.com/p/DEdHg5DyDMe/?hl=en&img_index=1)
 
 [The SG Club](https://www.instagram.com/p/C2CnpSpLsT9/?hl=en&img_index=1)
@@ -125,11 +127,16 @@
 # Sapporo
 [Bar Deux Ermitage](https://www.instagram.com/p/C2FuHouxEAR/?hl=en&img_index=1)
 
+[Bar Maduro](https://www.instagram.com/p/DXj9SwiFODP/?img_index=1)
+
 [Bar nano.femto.](https://www.instagram.com/p/C2CtiBjLZOs/?hl=en&img_index=1)
 
 [Bar Proof](https://www.instagram.com/p/C2USU-bO6Vs/?hl=en&img_index=1)
 
 [Bar Yamazaki](https://www.instagram.com/p/C2CfTKNrXVc/?hl=en&img_index=1)
+
+# Sendai
+[Bar Andante](https://www.instagram.com/p/DXhCNd5FGUi/?img_index=1)
 
 # Akita
 [Bar 1980](https://www.instagram.com/p/DHLtxf1xsxm/?hl=en&img_index=1)
@@ -138,7 +145,13 @@
 
 [Lady](https://www.instagram.com/p/DHUDqIry6Gr/?hl=en&img_index=1)
 
-[MonnShine](https://www.instagram.com/p/DTYT34UgSXh/?img_index=1)
+[MoonShine](https://www.instagram.com/p/DTYT34UgSXh/?img_index=1)
+
+# Morioka
+[The Bar Sato](https://www.instagram.com/p/DXhAt8bFGR2/?img_index=1)
+
+# Koriyama
+[The Bar Watanabe](https://www.instagram.com/p/DXfbOQZgSkg/?img_index=1)
 
 # Miyazaki
 [Nomi no Ichi](https://www.instagram.com/p/C79NLJWpDxH/?hl=en&img_index=1)
