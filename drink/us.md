@@ -42,6 +42,9 @@
 # Chicago
 [Kumiko](https://www.instagram.com/p/C2Cr9q2rpWU/?hl=en&img_index=1)
 
+# Dallas
+[Midnight Rambler](https://www.instagram.com/p/Dajr38mlPUZ/?img_index=1)
+
 # Denver
 [Williams & Graham](https://www.instagram.com/p/C-rhXB9RNbe/?hl=en&img_index=1)
 
@@ -79,6 +82,8 @@
 
 [Thunderbolt](https://www.instagram.com/p/C2Cob17rr0G/?hl=en&img_index=1)
 
+[Vandell](https://www.instagram.com/p/Dab8yGNlCP5/?img_index=1)
+
 # Nashville
 [Attaboy](https://www.instagram.com/p/DQ58XxGgFPC/?img_index=1)
 
@@ -110,6 +115,12 @@
 
 [Bar Goto](https://www.instagram.com/p/DHIvTy0xeIy/?hl=en&img_index=1)
 
+[Bar Madonna](https://www.instagram.com/p/DacCaNDlHnt/?img_index=1)
+
+[Bar Snack](https://www.instagram.com/p/DabxOWFEdcT/?img_index=1)
+
+[Clemente Bar](https://www.instagram.com/p/Dab-VmyFHAa/?img_index=1)
+
 [Clover Club](https://www.instagram.com/p/DHLL-dYRMGT/?hl=en&img_index=1)
 
 [Dante](https://www.instagram.com/p/C_KPg0Ax6_c/?hl=en&img_index=1)
@@ -132,13 +143,23 @@
 
 [Paradise Lost](https://www.instagram.com/p/DHGXC7uKkke/?hl=en&img_index=1)
 
+[Schmuck](https://www.instagram.com/p/Dab8lLKFAwk/?img_index=1)
+
+[Seed Library](https://www.instagram.com/p/DacBtk5lGOa/?img_index=1)
+
 [Sip & Guzzle](https://www.instagram.com/p/C79OxZjJrZV/?hl=en&img_index=1)
 
 [Superbueno](https://www.instagram.com/p/C79Rtbop8ua/?hl=en&img_index=1)
 
+[Swift Hibernian Lounge](https://www.instagram.com/p/Dab9XWxFJsM/?img_index=1)
+
+[Temple Bar](https://www.instagram.com/p/Dab-yjQlOiN/?img_index=1)
+
 [The Dead Rabbit](https://www.instagram.com/p/C79OJ0epwhX/?hl=en&img_index=1)
 
 [The Long Island Bar](https://www.instagram.com/p/DHLqpP6x25d/?hl=en)
+
+[The Portrait Bar](https://www.instagram.com/p/DajsbdUFBUm/?img_index=1)
 
 # San Diego
 [Noble Experiment](https://www.instagram.com/p/DRriK3WETes/?img_index=1)
