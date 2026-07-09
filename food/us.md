@@ -210,7 +210,7 @@
 
 ☆ [Pasjoli](https://www.instagram.com/p/C4kvNZHLecD/?hl=en)
 
-☆ [Pasta|Bar](https://www.instagram.com/p/C1UgwWer05V/?hl=en)
+☆ [Pasta Bar](https://www.instagram.com/p/C1UgwWer05V/?hl=en)
 
 ☆ [Phenakite](https://www.instagram.com/p/C4bMI5EPmtw/?hl=en)
 
