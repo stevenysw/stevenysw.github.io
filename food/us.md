@@ -291,6 +291,8 @@
 
 ☆ [Casa Mono](https://www.instagram.com/p/C4jbRs_vc_O/?hl=en)
 
+☆ [Corima](https://www.instagram.com/p/DacB4jblM7d/?img_index=1)
+
 ☆ [Cote](https://www.instagram.com/p/C0-PUI6Prci/?hl=en)
 
 ☆ [Essential by Christophe](https://www.instagram.com/p/C4Ya110pCf7/?hl=en)
