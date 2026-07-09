@@ -139,6 +139,8 @@
 
 ☆ [Wakuriya](https://www.instagram.com/p/C0gXnm2OQod/?hl=en)
 
+☆ [Wolfsbane](https://www.instagram.com/p/DZbrg2HFGKQ/?img_index=1)
+
 # Southern California
 ☆☆☆ [Addison](https://www.instagram.com/p/C0oxe9aLdsJ/?hl=en)
 
@@ -296,6 +298,8 @@
 ☆ [Estela](https://www.instagram.com/p/C0v3hBJLw25/?hl=en)
 
 ☆ [Gramercy Tavern](https://www.instagram.com/p/Dab1KTolPUy/?img_index=1)
+
+☆ [Huso](https://www.instagram.com/p/DabqOQNmnsH/?img_index=1)
 
 ☆ [Jeju Noodle Bar](https://www.instagram.com/p/C0v4ZA5LeAB/?hl=en)
 
