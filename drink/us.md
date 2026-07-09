@@ -63,6 +63,8 @@
 
 [Big Bar](https://www.instagram.com/p/DEW6VmyRVDs/?hl=en&img_index=1)
 
+[Daisy Margarita Bar](https://www.instagram.com/p/Dabrfz9zElH/)
+
 [Dante](https://www.instagram.com/p/DHm6_1txriT/?hl=en&img_index=1)
 
 [Death & Co.](https://www.instagram.com/p/C2FvWOlPDXK/?hl=en&img_index=1)
