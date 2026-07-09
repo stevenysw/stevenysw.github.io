@@ -3,7 +3,11 @@
 
 ☆☆☆ [Benu](https://www.instagram.com/p/C0kdsqsPltA/?hl=en)
 
+☆☆☆ [Californios](https://www.instagram.com/p/C0lE0quuzsi/?hl=en)
+
 ☆☆☆ [Coi](https://www.instagram.com/p/C0lbyLJuPlZ/?hl=en)
+
+☆☆☆ [Enclos](https://www.instagram.com/p/DLdrmwhSowU/?hl=en&img_index=1)
 
 ☆☆☆ [Manresa](https://www.instagram.com/p/C4VvUbYROmv/?hl=en)
 
@@ -21,13 +25,9 @@
 
 ☆☆ [Birdsong](https://www.instagram.com/p/C0vwVi1uihH/?hl=en)
 
-☆☆ [Californios](https://www.instagram.com/p/C0lE0quuzsi/?hl=en)
-
 ☆☆ [Campton Place](https://www.instagram.com/p/C4qEU_7r_Bd/?hl=en)
 
 ☆☆ [Commis](https://www.instagram.com/p/C4ahqPWrvfb/?hl=en)
-
-☆☆ [Enclos](https://www.instagram.com/p/DLdrmwhSowU/?hl=en&img_index=1)
 
 ☆☆ [Lazy Bear](https://www.instagram.com/p/C0qxld4u-1Z/?hl=en)
 
@@ -148,6 +148,8 @@
 
 ☆☆ [Hayato](https://www.instagram.com/p/C0qqAdAOXZo/?hl=en)
 
+☆☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
+
 ☆☆ [Melisse](https://www.instagram.com/p/C4WB1P4vj3s/?hl=en)
 
 ☆☆ [n/naka](https://www.instagram.com/p/C2ZYZTfuFTA/?hl=en)
@@ -181,8 +183,6 @@
 ☆ [[Jeune et Jolie](https://www.instagram.com/p/DRrWipOEQd6/?img_index=1)
 
 ☆ [Kali](https://www.instagram.com/p/C4niuq1LuS9/?hl=en)
-
-☆ [Kato](https://www.instagram.com/p/C4ajBpMr5yX/?hl=en)
 
 ☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
 
@@ -263,6 +263,8 @@
 
 ☆☆ [Gabriel Kreuther](https://www.instagram.com/p/C4bL7VoPGUi/?hl=en)
 
+☆☆ [Joo Ok](https://www.instagram.com/p/Dab-GypFGkj/?img_index=1)
+
 ☆☆ [Marea](https://www.instagram.com/p/C4eDI2USvFa/?hl=en)
 
 ☆☆ [Momofuku Ko](https://www.instagram.com/p/C0qrOhtONWo/?hl=en)
@@ -293,6 +295,8 @@
 
 ☆ [Estela](https://www.instagram.com/p/C0v3hBJLw25/?hl=en)
 
+☆ [Gramercy Tavern](https://www.instagram.com/p/Dab1KTolPUy/?img_index=1)
+
 ☆ [Jeju Noodle Bar](https://www.instagram.com/p/C0v4ZA5LeAB/?hl=en)
 
 ☆ [Junoon](https://www.instagram.com/p/C4iAx9OrfAZ/?hl=en)
@@ -304,6 +308,8 @@
 ☆ [Kosaka](https://www.instagram.com/p/C0zo1h3Prxw/?hl=en)
 
 ☆ [KyoYa](https://www.instagram.com/p/C4V36hJRVjK/?hl=en)
+
+☆ [Muku](https://www.instagram.com/p/DabrNjdGnVt/?img_index=1)
 
 ☆ [Oxomoco](https://www.instagram.com/p/C4gMTb4xcEN/?hl=en)
 
@@ -372,6 +378,8 @@
 
 ☆ [LeRoy and Lewis BBQ](https://www.instagram.com/p/DQad6ZtAfpH/?hl=en&img_index=1)
 
+☆ [Mamani](https://www.instagram.com/p/Dab7MoylOQc/?img_index=1)
+
 ☆ [Mixtli](https://www.instagram.com/p/DQabs52AXZA/?hl=en&img_index=1)
 
 ☆ [Olamaie](https://www.instagram.com/p/DQadtfKgakD/?hl=en&img_index=1)
@@ -389,6 +397,8 @@
 ☆ [Stubborn Seed](https://www.instagram.com/p/C4TRHPVxgzX/?hl=en)
 
 # Colorado
+☆☆ [The Wolf's Tailor](https://www.instagram.com/p/Dab90x_lFGa/?img_index=1)
+
 ☆ [Beckon](https://www.instagram.com/p/C-o7cLXxjcA/?hl=en)
 
 
