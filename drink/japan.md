@@ -13,6 +13,10 @@
 
 [Bar Kisara](https://www.instagram.com/p/C4dYzNHLTMB/?hl=en&img_index=1)
 
+[Bar La Hulotte](https://www.instagram.com/p/DdOsBLxmzrm/?img_index=1)
+
+[Bar Libre](https://www.instagram.com/p/DdNX8S8Gjyn/?img_index=1)
+
 [Bar Odin](https://www.instagram.com/p/DM8WyhaSuuS/?hl=en&img_index=1)
 
 [Bar Opa Ginza](https://www.instagram.com/p/DLZeSPZuOn-/?hl=en&img_index=1)
@@ -105,6 +109,8 @@
 [Bar Rocking Chair](https://www.instagram.com/p/C4Nr7JMr9IE/?hl=en&img_index=1)
 
 [Bee's Knees](https://www.instagram.com/p/C4NsJofrjPB/?hl=en&img_index=1)
+
+[Finlandia Bar](https://www.instagram.com/p/DdMblI8FDa8/?img_index=1)
 
 # Nagoya
 [Bar Barns](https://www.instagram.com/p/DEUVTaxxxDD/?hl=en&img_index=1)
