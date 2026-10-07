@@ -97,6 +97,8 @@
 
 ☆ [Kyobashi Tempura Fukamachi](https://www.instagram.com/p/C0iLFncsZGo/?hl=en)
 
+☆ [Les Saisons](https://www.instagram.com/p/Dc0bMzCmx6p/?img_index=1)
+
 ☆ [Mikawa Zezankyo](https://www.instagram.com/p/C0uzGqKPJbU/?hl=en)
 
 ☆ [Miyasaka](https://www.instagram.com/p/C4ahQXmrQEB/?hl=en)
@@ -146,6 +148,8 @@
 
 # Aichi
 ☆☆ [Reminiscence](https://www.instagram.com/p/C4V23JvxITU/?hl=en) 
+
+☆☆ [Sushi Shunbi Nishikawa](https://www.instagram.com/p/Dc0fCkDkdrV/?img_index=1)
 
 ☆☆ [Tempura Niitome](https://www.instagram.com/p/C2wSQe0OKl8/?hl=en)
 
