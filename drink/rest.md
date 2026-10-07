@@ -50,15 +50,34 @@
 
 [Bar Las Brujas](https://www.instagram.com/p/C2FudusRd4w/?hl=en&img_index=1)
 
+[Bijou Drinkery Room](https://www.instagram.com/p/DeBkLJSmx6B/?img_index=1)
+
+[FORM + MATTER](https://www.instagram.com/p/DeBhBPiG4vR/?img_index=1)
+
 [Handshake Speakeasy](https://www.instagram.com/p/C2Ceb6krOPs/?hl=en&img_index=1)
 
 [Hanky Panky](https://www.instagram.com/p/DM63tW-xdac/?hl=en&img_index=1)
 
-[Licoreria Limantour](https://www.instagram.com/p/C2FI1_8rV4d/?hl=en&img_index=1)
-
 [Kaito del Valle](https://www.instagram.com/p/C2CsalOrxC-/?hl=en&img_index=1)
 
+[Licoreria Limantour](https://www.instagram.com/p/C2FI1_8rV4d/?hl=en&img_index=1)
+
 [Rayo](https://www.instagram.com/p/C2CpbcpLKbZ/?hl=en&img_index=1)
+
+[Tlecan](https://www.instagram.com/p/DeBjPuVm0zN/?img_index=1)
+
+# Lima, Peru
+[Bijou](https://www.instagram.com/p/DeDSeZ9GdS7/?img_index=1)
+
+[Booze Bar](https://www.instagram.com/p/DeDSEqZGRxt/?img_index=1)
+
+[Carnaval](https://www.instagram.com/p/DeBitsyG0Hw/?img_index=1)
+
+[Lady Bee](https://www.instagram.com/p/DeBqZzaG2pL/?img_index=1)
+
+[LIMAQ](https://www.instagram.com/p/DeDS1k-mZWc/?img_index=1)
+
+[Sastrería Martinez](https://www.instagram.com/p/DeBrB--m4hp/?img_index=1)
 
 # Singapore
 [Atlas](https://www.instagram.com/p/DCo5oQ2PcZp/?hl=en&img_index=1)
