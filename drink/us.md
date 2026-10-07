@@ -48,6 +48,11 @@
 # Denver
 [Williams & Graham](https://www.instagram.com/p/C-rhXB9RNbe/?hl=en&img_index=1)
 
+# Kansas City
+[Drastic Measures](https://www.instagram.com/p/Da9gNHClGuD/?img_index=1)
+
+[Wild Child Libations](https://www.instagram.com/p/Da8aWAqmHjD/?img_index=1)
+
 # Las Vegas
 [Electra Cocktail Club](https://www.instagram.com/p/DIWd6cUJRZ6/?hl=en&img_index=1)
 
