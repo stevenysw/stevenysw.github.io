@@ -83,7 +83,21 @@
 
 [Central](https://www.instagram.com/p/C0gQIfQOEux/?hl=en)
 
+[Cosme](https://www.instagram.com/p/Dd_XObEG_Uh/?img_index=1)
+
+[Clon](https://www.instagram.com/p/Dd8ycGTm67i/?img_index=1)
+
+[Isolina](https://www.instagram.com/p/DeDuI3NFHjD/?img_index=1)
+
 [Maido](https://www.instagram.com/p/C0h21OUPkQu/?hl=en)
+
+[Mayta](https://www.instagram.com/p/Dd9CAw-m10O/?img_index=1)
+
+[Mérito](https://www.instagram.com/p/Dd6C9ijG4yo/?img_index=1)
+
+[OSSO](https://www.instagram.com/p/DeBkk9kmw86/?img_index=1)
+
+[Rafael](https://www.instagram.com/p/DeBiKa7GxPz/?img_index=1)
 
 # United Arab Emirates
 ☆☆ [Il Ristorante - Niko Romito](https://www.instagram.com/p/C0hsGCLxjF1/?hl=en)
