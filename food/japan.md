@@ -87,6 +87,8 @@
 
 ☆ [Edomae Shinsaku](https://www.instagram.com/p/C2wcdvtOICO/?hl=en)
 
+☆ [Ginza Kitagawa](https://www.instagram.com/p/Dc000KZmyOd/?img_index=1)
+
 ☆ [Imafuku](https://www.instagram.com/p/C4Ybml0P-Je/?hl=en)
 
 ☆ [Ishibashi](https://www.instagram.com/p/C4iD8Pyr3mM/?hl=en)
@@ -102,6 +104,8 @@
 ☆ [Nodaiwa Azabu Iikura Honten](https://www.instagram.com/p/C4dF_kRLxBb/?hl=en)
 
 ☆ [Obana](https://www.instagram.com/p/C0z0vQRPNgW/?hl=en)
+
+☆ [PRIMO PASSO](https://www.instagram.com/p/DdI6PvFG9Lv/?img_index=1)
 
 ☆ [Shinjuku Kappo Nakajima](https://www.instagram.com/p/C4iHG1YL478/?hl=en)
 
@@ -227,6 +231,8 @@
 ☆ [Sushi Jin](https://www.instagram.com/p/DITjmAQpq1J/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Fukui
+☆☆ [Oryori Ittou](https://www.instagram.com/p/DdILtNJGlbl/?img_index=1)
+
 ☆☆ [Sushi Jubei](https://www.instagram.com/p/C37ooCtrOYo/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Hiroshima
