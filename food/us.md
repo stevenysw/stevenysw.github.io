@@ -107,6 +107,8 @@
 
 ☆ [Protégé](https://www.instagram.com/p/C2ZaL3LOKtA/?hl=en)
 
+☆ [Restaurant Naides](https://www.instagram.com/p/DbIAV-wFCZo/?img_index=1)
+
 ☆ [San Ho Won](https://www.instagram.com/p/C4i4sZMv-A0/?hl=en)
 
 ☆ [Selby's](https://www.instagram.com/p/C4iG1R0L44c/?hl=en)
@@ -187,6 +189,8 @@
 ☆ [Kali](https://www.instagram.com/p/C4niuq1LuS9/?hl=en)
 
 ☆ [Knife Pleat](https://www.instagram.com/p/C0lbOlHO80D/?hl=en)
+
+☆ [[Kojima](https://www.instagram.com/p/Da8aCjhmncU/?img_index=1)
 
 ☆ [Le Comptoir](https://www.instagram.com/p/C4kruvRLgXi/?hl=en)
 
