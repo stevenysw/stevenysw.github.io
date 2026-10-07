@@ -89,6 +89,8 @@
 
 [Isolina](https://www.instagram.com/p/DeDuI3NFHjD/?img_index=1)
 
+[Kjolle](https://www.instagram.com/p/Dd-lhCMFJXB/?img_index=1)
+
 [Maido](https://www.instagram.com/p/C0h21OUPkQu/?hl=en)
 
 [Mayta](https://www.instagram.com/p/Dd9CAw-m10O/?img_index=1)
