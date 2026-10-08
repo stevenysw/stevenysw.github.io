@@ -225,6 +225,8 @@
 
 ☆ [Ipponsugi Kawashima](https://www.instagram.com/p/DHBFKRORnJo/?hl=en)
 
+☆ [Sushi Kibatani](https://www.instagram.com/p/DdKewoNgcCq/?img_index=1)
+
 ☆ [Sushi Mitsukawa](https://www.instagram.com/p/C0vzSpVOodW/?hl=en)
 
 # Toyama
