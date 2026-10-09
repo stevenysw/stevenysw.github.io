@@ -10,9 +10,9 @@
 ☆ [Palette](https://www.instagram.com/p/C5E7QNuyrqn/?igsh=NTc4MTIwNjQ2YQ==)
 
 # Canada
-☆ [Alo](https://www.instagram.com/p/DMuNe_DO6td/?hl=en&img_index=1)
+☆☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
 
-☆ [AnnaLena](https://www.instagram.com/p/C4i405ZvhLl/?hl=en)
+☆ [Alo](https://www.instagram.com/p/DMuNe_DO6td/?hl=en&img_index=1)
 
 ☆ [Barbara](https://www.instagram.com/p/DWk9GJcFEr0/?img_index=1)
 
